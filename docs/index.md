@@ -12,7 +12,11 @@ Document various lessons succinctly I learn via anecdotal and empirical experien
 
 ## FAQ
 
-** Q: Is this AI generated? **
+**Q: Is this AI generated?**
 
 A: No.
+
+**Q: What's this built with?**
+
+A: MKDocs Material - as a note to self, some [references are here](https://squidfunk.github.io/mkdocs-material/reference/)
 
