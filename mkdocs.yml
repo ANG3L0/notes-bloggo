@@ -1,8 +1,8 @@
 site_name: Angelo's Notes
 theme:
   name: material
+  custom_dir: overrides
   palette:
-
   # Palette toggle for light mode
   - scheme: default
     toggle:
