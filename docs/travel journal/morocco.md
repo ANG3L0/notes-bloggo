@@ -558,7 +558,9 @@ This guide didn't wait for us to finish lunch and just told us to find our way b
 
 ### Final Dinner (really good)
 
-For our final dinner, we told our driver to just take us to the same place as yesterday. Apparently, not only can you order food from the menu, but you can **also go to a butcher and ask them to cut you up some fresh meat, and then take it to the next station and they'll cook it fresh for you. They'll then serve it to your table.** We had:
+For our final dinner, we told our driver to just take us to the same place as yesterday. On the way back, <mark>**we saw locals use donkeys and mules**</mark> as cars. Like car brands, mules are for richer folk and donkeys are for poorer folk. But they just use their animals to pull a wagon and they just sat in the wagon.
+
+Anyway, we arrived to the dinner place and not only can you order food from the menu, but you can **also go to a butcher and ask them to cut you up some fresh meat, and then take it to the next station and they'll cook it fresh for you. They'll then serve it to your table.** We had:
 
 * 0.5 kg lamb tangia
 * Bunch of skewers
