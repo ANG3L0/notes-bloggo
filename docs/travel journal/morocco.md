@@ -4,7 +4,7 @@
 
 We traveled from **May 12 thru May 23, 2023.**
 
-We booked a private tour with [Morocco Daily Tours](https://www.moroccodailytours.com/) for about **$3K total, for 2 people (so $1.5K each)**. This means you get a private driver that takes you around different places and you don't really have to plan anything. No crowding in busses adhering to some group schedule. Stop whenever you want, wherever you want. Just tell to driver to go and they'll drive you there.
+We booked a private tour with [Morocco Daily Tours](https://www.moroccodailytours.com/) for about **$3K total, for 2 people (so $1.5K each)**. This means you get a private driver that takes you around different places and you don't really have to plan anything. No crowding in buses adhering to some group schedule. Stop whenever you want, wherever you want. Just tell to driver to go and they'll drive you there.
 
 It's our first time doing this kind of a VIP trip because if you did this anywhere else, it'd be prohibitively expensive. But with $3K, it included:
 
@@ -71,7 +71,7 @@ We hiked up a mountain near the town Mosque to see the sunset and went back to o
 
 ## Fes (May 15-17)
 
-### Riads, Typical Breakfast
+### Riads, typical breakfast
 
 We arrived to Fes and took a bunch of pictures of the Riad because it was pretty. Here's an exterior and interior shot with some explanations.
 
@@ -105,7 +105,7 @@ Fes is a city of artisans, and one of our first stops was to see how they make m
 
 <figure markdown>   ![Morocco ceramics](images/morocco-mosaics.jpeg){ width="600" } </figure>
 
-### Walking Tour
+### Walking tour
 
 #### Why do we need another guide?
 
@@ -187,7 +187,7 @@ This shut him up nice because he doesn't know how to handle that objection.
 
 I get that tanneries are expensive to run and they want business, but selling like this is amateur hour and one of the things I hate most is witnessing incompetence.
 
-#### School house Islam
+#### Oldest university in the world
 
 Then we went to the [oldest university in the world](https://en.wikipedia.org/wiki/University_of_al-Qarawiyyin). The school used to be a regular University that allowed for studies in various degrees and disciplines in the past. It's been since converted to a school dedicated to studying Islamic studies.
 
@@ -311,7 +311,7 @@ They call it Hollywood of Africa because tons of movies were filmed there. Some 
 * Indiana Jones
 * Prince of Persia
 
-We stayed the night in Ouzazarte as it was a long drive there.
+We stayed the night in Ouzazarte--the hotel was beautiful and French-themed. They had a big, green garden and we had a balcony looking at the garden. We saw some local folks with donkeys transporting vegetables. The food there sucked though. Our tour guide and some tooth pain and asked us if we had medicine for teeth (he was staying at the same hotel)--so I gave him some extra strength Tylenol. What's good for him is good for us because as passengers, we don't want an in-pain and sleep-deprived driver.
 
 The next day, we went to a Unesco Heritage site nearby ([Ait Benhaddou](https://en.wikipedia.org/wiki/A%C3%AFt_Benhaddou)) and they were **building a set for Gladiator 2** there. They're going to build it for 6 months and apparently will only film it there for 3 days. Cheap labor, I guess.
 
@@ -351,23 +351,251 @@ Belly full of protein farts, we then drove to Marrakesh, our final destination f
 
 ## Marrakesh (May 20-23)
 
-This is a big city and is very similar to Fes. Large markets, and the city is separated into 2 regions: new town and old town (their medina / historical center).
+### Overview
+
+This is a big city and is very similar to Fes. Large markets, and the city is separated into 2 regions: new town and old town (their medina / historical center). The new town is mall modern, with malls and such--old town is similar to the Fes markets' vibe as you saw above.
 
 ### First Dinner
 
+Our driver said he'd go to the dentist today, so instead of asking him to drive us to the old town, we instead just called a taxi. **This turned out to be a bad idea.** Trained in our previous trip to Mexico, we also negotiate and settle on a price *before* boarding the taxi. There are 2 apps in Morocco for ridesharing:
+
+* Heetch
+* Roby
+
+We tried Heetch first because it had a lot more reviews on the app store. From our hotel to the old town, it's about 40 DH (4 USD). But there's no taxis on the app. We asked the hotel staff to help us call a taxi and they reluctantly did so after asking them a few times. They mostly spoke French and only some English, so maybe they didn't understand our request? Nope--we later found out that it was because the receptionist thought it wasn't her job to call a taxi.
+
+Anyway, they called a taxi and the taxi quoted us **80DH (8 USD)** to the old town, or double the price of the app. We negotiated down it down to 60DH, but that's still a 50% markup. So we told him to fuck off. We asked the hotel to call a taxi with a meter, as a meter would show only 30-40 DH going to the old town; they obliged. The 2nd taxi came and said he isn't willing to go to the old town because a car can't get there (this is a lie because we were able to get there easily by car as you'll find out).
+
+Getting pissed, I did a last did effort and tried Roby. Roby quoted 67DH to the city, and I said "fuck it" and called a taxi. It came and he spoke English and was a great driver. Asked us where we're from and we said "New York" and he said he'd love to go to USA one day, inshallah (if Allah wills it). Acted as a tour guide and talked about the old town vs new town and pointed out buildings on the way to the restaurant. He dropped us off at the restaurant and gave him 100 DH cash (the app doesn't have a credit card option and so you must pay cash). He only had 20 DH in change and was going to go get more for us, so we just say "forget it" and let him keep the change.
+
+We don't mind being ripped off if the service and the person is good (consider it a 10DH tip). But if they're a grumpy driver and their service sucks, I'm hesitant to even pay 60DH because it doesn't feel as good to spend that money.
+
+Anyway, we had dinner at this place called Italian place Limoni due to its high rating but it sucked. The ravioli was very doughy and the pasta, while creamy, had no flavor. It is a direct insult to Italian cuisine and my pretend-heritage. The interior design and courtyard was nice though.
+
+Coming back, we ran into a taxi that agreed to take us home for 80DH, and we negotiated it back to 70DH. The car was dilapidated and the rubber lining on the doors were completely falling apart. The car smelled and the driver smelled of sheer incompetence. Whereas the previous taxi driver didn't even need a phone/GPS to navigate us to the restaurant, this driver needed us to punch in the address for him for the hotel on his phone. Not only that, he kept putting his phone on a wobbly-ass phone holder. It looked like the phone was about to fall out of his dashboard any second, and he kept having to adjust it every minute or so.
+
+Just sheer-fucking-incompetence which I really hate, and pisses me off now thinking about it.
+
+The whole time he spoke French and asked in French if I spoke French, to which I responded:
+
+> No, English
+
+To which of course he kept speaking French to me, which I ignored.
+
+By the time we got to almost our destination he stopped his car because he's too lazy to make a U-turn to get to the hotel. It wasn't a small street crossing to get to the hotel; if we got off the car there we need to navigate a very large roundabout to be able to get to the hotel. I'm sure he didn't understand English but Serena and I were very loud in our demands for him to actually take us to our destination and he angrily obliged, while speaking some French, still assuming I'd magically pick up the language because he kept speaking it.
+
+Still no clue what he's on about, he dropped us off at the hotel.
+
 ### YSL
 
-### Walking Tour: Marrakesh
+The next day we had breakfast and the breakfast sucked. The pastry was kind of stale and the food was meh. There's an omelette lady that cooks omelettes but it took forever to get her to do her job--she was too busy chatting it up with other employees and laughing. When she finally cooked, the omelette was pretty burned. I didn't include pictures here of breakfast because I don't want to hurt your eyes.
 
-### Walking Tour: Essaouira
+After, we made our way to the [YSL house](https://westontable.com/blogs/travels/yves-st-laurents-private-marrakech-house-and-gardens), and our driver said us how our hotel was. Serena said "it's OK" and our driver got very concerned.
+
+We explained the taxi situation and he told us we should never interact with local taxis and we got lucky that we were only charged 70DH-80DH. He said he's had some tourists that didn't negotiate the price before jumping in the car and were charged 550 DH (55 USD) for a 10 minute trip. For reference, we thought 6-8 USD was expensive for Morocco standards for a 20 minute trip. He also said that even the local people in Marrakesh hate the taxi drivers and see them mostly as scammers.
+
+We got to the YSL house and took a lot of pictures like these:
+
+<figure markdown>   ![Me being a poser](images/morocco-ysl-1.jpeg){ width="600" } <figcaption>Me, being a poser</figcaption></figure>
+
+<figure markdown>   ![Plant pose](images/morocco-ysl-2.jpeg){ width="600" } <figcaption>Me, looking at a plant because I saw someone else strike this pose.</figcaption></figure>
+
+The guards there were annoying; they know people were there to take pictures but would regularly chat with other security guards while standing in high traffic areas. Maybe it's to rush the tourists so they will leave the premises quicker? Easier to put up signs in that case.
+
+Anyway, after being a pro bono model for an hour (I'm joking, because we had to pay to visit the YSL house), we headed toward the the Marrakesh medina where we'd have another walking tour.
+
+### Walking tour: Marrakesh
+
+#### Riads
+
+First, he took us to an older Riad which now acts as a museum, which had striking resemblance to the [Riad Sara](#riads-typical-breakfast) we stayed at in Fes. It had in common:
+
+* Beautiful courtyards
+* Rooms had very high ceilings for the people who used to stay there
+    * Even the room for the servants had ceilings much higher than what we're accustomed to in the US
+* Fountain in the middle signifying the fountain of life
+* 4 quadrants to signify rivers of milk, honey, wine, water
+* Lots of symmetry and geometrical shapes for their mosaics
+
+<figure markdown>   ![Morocco Riad tour](images/morocco-riad-tour.jpeg){ width="600" } <figcaption>Just another Riad</figcaption></figure>
+
+It was huge though and unlike modern Riads, this one had many courtyards and 60+ rooms.
+
+#### The markets
+
+Then, he took us to a market. As you'll see below, the market is very similar to Fes'. We saw some leather shops and various artisans, but my favorite are what our guide calls "coffeezillas." No, not the Youtuber. These are folks that sell coffee and has a very large pot of coffee that's continuously heated by coal. And you just pay them whatever and they'll give you a nice, delicious cup of coffee.
+
+<figure markdown>   ![Another market in Morocco](images/morocco-markets.jpeg) <figcaption>Similar to Fes / Star Wars village market vibes.</figcaption></figure>
+
+<figure>
+<video controls>
+  <source src="../images/morocco-coffeezilla.mp4" type="video/mp4">
+  Your browser does not support the HTML5 video tag.
+</video>
+    <figcaption>Was delicious. Had tons of cinnamon smell to the coffee and other herbs. Very hot. The vendor actually poured me a coffee already and our guide told the vendor to put the coffee back in and re-pour it slowly so we can film it lol. I was good either way but wow they really care.</figcaption>
+</figure>
+
+Paid him 10 DH ($1 USD); I think going price is actually 5 DH though--whatever, he poured it twice so he should get twice the money.
+
+#### Marrakesh square
+
+Finally, we went to the main Marrakesh square. If you've seen Youtube videos on Marrakesh square, you'll know that many people will try to scam you or try and sell you stuff. Apparently, when you're walking with a guide, it happens a lot less. Even at the market, someone approached me while our guide was helping some lost tourists, and our guide immediately came and padded the soliciter on the shoulder and said something and the solicitor went away.
+
+So I highly recommend using guides when traversing places like these if you don't wanna be annoyed.
+
+
+<figure markdown>   ![Marrakesh square](images/morocco-marra-square.jpeg) <figcaption>The famed Marrakesh square where there's all kinds of vendors--from selling orange juice to snake charmers and people chain monkeys by the neck for some reason.</figcaption></figure>
+
+#### Sigma lunch
+
+He then took us to lunch where we had a view of the square from the rooftop. Serena thought it was mid but I thought it was extremely delicious because it was one of the very few meals we had where the [tangia's](https://en.wikipedia.org/wiki/Tangia) meat is very moist and wasn't dry at all. The lamb was also melt-in-your-mouth soft. Just looking at these pictures for this post makes me hungry and as I type this, I feel my mouth salivating. That's how good it was. The food isn't visually stunning as you'll see below, but *goddamn*, just trust me on this one.
+
+<figure markdown>   ![Really good lamb](images/morocco-good-lamb.jpeg){ width="600" }</figure>
+
+<figure markdown>   ![Really good lamb](images/morocco-good-tagine.jpeg){ width="600" }</figure>
+
+The best part--our guide *waited for us to finish lunch* so he can walk us back to our driver! That's above and beyond and immense service, so we tipped him.
+
+### Powerless
+
+#### No, literally.
+
+We went back to the hotel and our room had no power or water. So went to the reception and asked them about it. They said the city is doing something and it's not their fault. This is shitty because taking a shit is more awkward than usual now.
+
+Another problem: it was 2PM and we booked a Hammam at the hotel at 3:30PM. They said it'd only take an hour to fix, so we had our fingers crossed we can do a Hammam by then. Serena texted the boss of the Moroccan Daily Tours about the situation, just as an FYI, and 5 minutes later our driver came back.
+
+I want to <mark>**highlight the ridiculously immaculuate service that this tour guide had for us here.**</mark> They didn't need to do anything of the following, and everything below is above and beyond:
+
+* Driver came back and took care of us
+* Found out more information from hotel staff and tried to understand why we thought the hotel was just "OK."
+    * It's important to note here that the hotel and its facilities is one of the nicest on the trip, and this was no accident. They saved the most expensive for last for us because they wanted us to end the trip with a great experience. Alas, the hotel staff kind of kills the magic a little bit.
+* Knowing that our Hammam booking's at risk, he spent *half an hour* calling local Hammams, begging them to take us as customers (normally these spa treatments are booked 24h+ in advance because they're in very high demand). And he secured a booking.
+    * And they *insisted* on paying for our Hammam for some reason, even though it wasn't their fault.
+* If, by the time we come back from the Hammam, the hotel still had no electricity or plumbing, they offered to help us book a local Riad instead for the remaining nights.
+
+We had time to kill before our 3:30PM Hammam, so I played foosball with myself before a staff member came to join me.
+
+#### Foosball
+
+<figure markdown>   ![Foosball in Morocco](images/morocco-foosball.jpeg) <figcaption>I lost. Twice. First game 5-10 and second game 9-10. Fuck this guy. And the table was shitty.</figcaption></figure>
+
+Then, I played our driver whom I'm pretty sure let me win. The staff played with the rule in foos where the center 5-man can score even when the ball just got in play. Our driver played with the rules where the center 5-man scoring at any point in the game doesn't count at all, ever.
+
+For me, the rule I'm used to is: the 5-man cannot score when the ball is first in play, but can score if the ball has gone outside of the center once during this round (i.e. you pass your ball to your offensive 3-man and then back to the 5-man, and then score = counts as 1 point, but if you score with your 5-man when you toss your ball in = no points).
+
+Of the 2 extremes from the staff and driver, I prefer the latter extreme because the 5-man scoring at the beginning of the game is kind of bullshit. And the staff scored like 6 points like that in both of the rounds.
+
+#### Hammam
+
+Anyway, we went to the Hammam and our tour guide insisted on paying. The whole hotel fiasco isn't really their fault at all so we didn't feel good about taking their money so offered to pay ourselves. He kept insisting so as a compromise, we offered to pay $100 of the $130 Hammam. They feel good about helping us out in this situation, and we feel good about not having them pay much for something that isn't their fault at all.
+
+Anyway, we did the Hammam where the service was OK? They kept speaking French to me though so I had no idea what they were saying. They didn't really provide me with those massage underwear so I thought I'd just go into the Hammam nude. Being very conservative (in a predominantly Muslim country), the workers saw I was nude and asked the other staff to bring us underwear. Anyway, despite the faux pas they gave us Moroccan snacks in the waiting room + Moroccan tea, and again once the bath was finished. When we were done resting after the bath, they took us in and massaged us for about 45 minutes, so the whole experience was about 1 hour 30 minutes.
+
+**The bottom line here is I got to ate snacks and my skin is a lot smoother.**
+
+Our driver then picked us up and we all had dinner together. This would be our last meal together because we'd be getting a new driver tomorrow due to schedule conflicts. We asked for local food and OMG the food was so damn good. We had:
+
+* Moroccan tea
+* Freshly made, oven-fired bread--kind of like naan
+* Tagine (1kg of lamb)
+* 1.5L of water.
+
+Whole thing was just 200 DH + 20 DH for tips and was very reasonable. We got back to the hotel and there was indeed water and electricity. So we said our goodbyes to our driver and tipped him generously.
+
+### Walking tour: Essaouira
+
+#### The port
+
+This is the final real day (May 22nd) of our trip. The next day would just be a travel day to the airport. This is a seaside town that's 3 hours away from Marrakesh, and apparently John Wick was filmed there. On our plane trip back to the states, I watched John Wick 3 again and noticed that these scenes were filmed there:
+
+* Some drone shots of Morocco
+* The scene where that dude shot Halle Berry's dog
+* Various scenes where John was walking towards the Moroccan continental
+* The transition scene where John has arrived to port to go to the Moroccan continental
+
+And probably more I missed.
+
+Anyway, we got to the town and was greeted by another guide to do the walking tour. We walked around and learned that this was a place that was dominated by the Portuguese back in the day. But eventually they lost their power due to various skirmishes and abandoned the port. As a result, there's a bunch of cannons that's left behind in the port city.
+
+<figure markdown>   ![Cannon](images/morocco-cannon.jpeg){ width="600" } <figcaption>This is the exact cannon that is very obscured in the background in the scene where Halle Barry and John Wick talk to the dude, figuring how to talk to the one that sits above the table. The whole place is a round platform with a lookout into the ocean to fend off invaders, and the center of the platform (where John Wick was talking) can be stomped on to communicate with stationed soldiers downstairs. Now, there are just shops downstairs.</figcaption></figure>
+
+
+
+#### Architecture
+
+We also learned that the city had a mixture of Jewish, Christian, and Muslim folks. And when they established the city, their hope is that all 3 religions, while having different believes, will come together as one and accept each other. As a result, a lot of their architecture is based around a unification of all 3 religions. For example, houses would generally have 2 emblems:
+
+* 1 emblem that denoted which religion they believed in. Kind of like Harry Potter's emblems for the 4 different houses.
+* Another emblem denoting peace among all 3 religions.
+
+#### Got wood?
+
+We then walked around the town some more, navigating the maze that is their town--very similar to the old town / markets of Fes and Marrakesh. They took us to a woodworking shop and again, there was "no obligation to buy" which made me want to buy a lot more. You can see in the videos below a ton of this stuff is made by hand.
+
+<figure>
+<video controls>
+  <source src="../images/morocco-woodworking.mp4" type="video/mp4">
+  Your browser does not support the HTML5 video tag.
+</video>
+    <figcaption>All details are painstakingly man-made.</figcaption>
+</figure>
+
+Alas, a big wooden bowl for food was like 800DH and we can't really justify that purchase. They also didn't have cutting boards though, which I would've liked to have buy. Still, if they had the right product, I'd much more gladly buy this than leather goods because the dude showed us his craft without asking for anything in return.
+
+#### Bad lunch
+
+Afterwards, the guide brought us to a seafood lunch place (a lot of tour guides bring people here so they probably get a kickback). The seafood was mediocore, but we had to wait a long time for it. The shrimp tartare was made with cooked shrimp, which left me very confused. Their shrimp tagine was made with poorly quality, frozen shrimp and was gross. Their seabass was OK / a little dry. Their calamari was OK, but not enough flavor for my liking.
+
+Not only did we have to wait a long time for the food but it was the most overpriced / expensive meal we had at 510 DH ($51 USD).
+
+This guide didn't wait for us to finish lunch and just told us to find our way back to our guide. Wish we tipped him less than we did.
+
+### Final Dinner (really good)
+
+For our final dinner, we told our driver to just take us to the same place as yesterday. Apparently, not only can you order food from the menu, but you can **also go to a butcher and ask them to cut you up some fresh meat, and then take it to the next station and they'll cook it fresh for you. They'll then serve it to your table.** We had:
+
+* 0.5 kg lamb tangia
+* Bunch of skewers
+* 4 lamb brains
+* 4 things of liver
+* Moroccan tea
+* Fresh wood-fire bread
+* Some really hot peppers
+
+We insisted our driver eat with us and had a bunch of leftovers, so just asked the driver to take it to-go so him / his wife don't have to worry about the next meal.
+
+<figure>
+<video controls>
+  <source src="../images/morocco-final-dinner.mp4" type="video/mp4">
+  Your browser does not support the HTML5 video tag.
+</video>
+    <figcaption>Finally had some brains.</figcaption>
+</figure>
 
 ### Lessons
 
-## Takeaways
+* Overall, the hotel was very pretty and one of the most modern/nicest we've stayed. But due to poor staff, I think overall it was one of the worst hotels in the trip. Hence, more adverse conditions with good people > good conditions with bad people.
+* I'm less willing to pay for poor service than great service, given the same product. Thus, in business you can compensate for a mediocore product with excellent service for at least some part of the market. Obviously great service + great product = $$$ though.
+* Brain is very delicious. It's got a fat and fluffy texture to it and goes well with sauce and spices. Chasing a bite of brain with a bite of very spicy pepper is peak Moroccan food.
 
-* bad place w/ good people > good place w/ bad people
-* sales tactic: not pushy = more likely to buy
-  - Wood craftsman vs leather jacket salesperson
-  - WIIFM: Leather jacket = talks about how great their leather is. Don't care. Talks about how 'cheap' to buy their jacket (ended up being 500 euros) because they focus on quality, not brand name. Again, he says all this without knowing what the customer values. Most rich people that can buy these things value brand because they want to show off. They don't care about quality or keeping warm or having a fireproof jacket.
-- Poor people can be happy too. Different people just have different types of problems to solve.
-- "Duty"
+## Epilogue
+
+During our last dinner with our first driver, he followed my Tik Tok and I messaged him in Arabic (he can't read English) to thank him for the wonderful trip. His reply:
+
+> هذا واجب لا شكر على واجب يا سيدي.
+
+ChatGPT translation (Google translate didn't make a lot of sense):
+
+> This is a duty, no need to thank for a duty, sir.
+
+He went way above and beyond because he felt responsible for us and this wasn't just some "job" where he gets paid and does the least possible, as is common among Americans. He did everything possible to make us happy because he felt it was his duty / moral obligation to do so.
+
+## Main takewaways from trip
+
+* Adverse conditions with good people > good place with bad people / staff.
+* Sales tactic: not being pushy = customers are more likely to buy. Always focus on the customer's "WIIFM" (what's in it for me)
+- People with limited financial resources can be happy too. Different wealth levels just means different types of problems to solve. Happiness and wealth are almost orthogonal.
+- Treating your job as your 'duty' / moral obligation makes your customers a lot happier. And probably beneficial to you, long-term. Probably much more true in businesses than in corporate settings. But still.
+- Great service helps compensate for a slightly worse product than competitors'.
+- Morocco is a great and affordable trip and I highly recommend you go. Especially with this tour group.
+- I hope I can make more money to go on more trips like this.
