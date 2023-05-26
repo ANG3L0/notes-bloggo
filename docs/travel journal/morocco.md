@@ -584,6 +584,16 @@ We insisted our driver eat with us and had a bunch of leftovers, so just asked t
 * I'm less willing to pay for poor service than great service, given the same product. Thus, in business you can compensate for a mediocore product with excellent service for at least some part of the market. Obviously great service + great product = $$$ though.
 * Brain is very delicious. It's got a fat and fluffy texture to it and goes well with sauce and spices. Chasing a bite of brain with a bite of very spicy pepper is peak Moroccan food.
 
+## Bye
+
+The next day we went to the airport (where Google Maps told us to go to T1 while our flight was in T2). The airport is shitty and we waited about an hour for the counter to process ~6 checkins before our turn.
+
+We went to the lounge and that sucked as well. There was only cold pastries and if you want a slider, you need to pay for it. There's some water, coke, and coffee. The staff was having a lot of fun and didn't really tend to anyone in the lounge. In fact, in a quiet lounge where the patrons were working, the staff was really, really loud.
+
+But the upside of this is that a lot of people left and so the lounge wasn't too crowded.
+
+We boarded our flight and went home.
+
 ## Epilogue
 
 During our last dinner with our first driver, he followed my Tik Tok and I messaged him in Arabic (he can't read English) to thank him for the wonderful trip. His reply:
