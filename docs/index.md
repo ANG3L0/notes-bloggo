@@ -4,6 +4,10 @@
 
 Document various lessons succinctly I learn via anecdotal and empirical experience. Synthesized lessons can hopefully be used to help me deal with the hard things in life, as well as interdisciplinary purposes (business, productivity, etc)
 
+## Compatability
+
+Doesn't work on Firefox. Use a real browser like Chrome, Safari, or even Edge.
+
 ## FAQ
 
 **Q: Is this AI generated?**
