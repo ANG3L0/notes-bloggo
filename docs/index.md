@@ -6,7 +6,7 @@ Document various lessons succinctly I learn via anecdotal and empirical experien
 
 ## Compatability
 
-Doesn't work on Firefox. Use a real browser like Chrome, Safari, or even Edge.
+This site doesn't work on Firefox for videos. Use a real browser like Chrome, Safari, or even Edge.
 
 ## FAQ
 
