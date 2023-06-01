@@ -164,6 +164,21 @@ I'll explain more in the next section as to why. But let's end the saga here wit
 
 <mark>**The main thing to keep in mind here is that when they send you an email, you have probably a minute to react and claim your booking**.</mark> Which I did. Maybe I should sell a SaaS booking hard-to-book restaurants and just charge a $10 fee for a booking? Lmk.
 
+Below's a picture of the ambience.
+
+<figure markdown>   ![Space 220](images/orlando-space.jpeg)   <figcaption>View from Space 220 Lounge, not Restaurant.</figcaption> </figure>
+
+Space 220 has 2 seatings: **Space 220 Restaurant**, and **Space 220 Lounge**. I wanted the restaurant because the lounge menu just looked like bar food and I wanted to eat their tasting menu. I also thought the lounge would only have bar seating which kind of sucks. But I thought:
+
+> Oh well, I'll just pick the lounge because I'll enjoy the vibe and beggars can't be choosers
+
+But the lounge turns out to be better than the restaurant. Here are the differences:
+
+* **Space 220 Restaurant:** Tasting menu **only**. You get to sit very close to those space windows.
+* **Space 220 Lounge: ** You can have bar food OR the tasting menu, so you're not restricted in the food. There's actual seating and not just bar seating. You sit maybe 20 feet away from the windows.
+
+Knowing what I know now, I prefer the lounge over the restaurant due to the optionality. We ordered the main tasting menu and it turned out to be delicious and we were extremely full. But it's nice to have the option to additionally order more bar food / snacks as well.
+
 ### Lodging
 
 I wanted to book a Disney Resort hotel because I wanted a shuttle to go to the parks and didn't want a car. Little did I know there are many other benefits. And thank goodness also, because it was **$2K+** for 3 nights only at the [Swan Reserve](https://www.marriott.com/en-us/hotels/mcokc-walt-disney-world-swan-reserve/overview/). It's a 5-star hotel--they had a nice gym (which we used to refill water) and a swimming pool, but no other real amenities. Even breakfast wasn't free.
