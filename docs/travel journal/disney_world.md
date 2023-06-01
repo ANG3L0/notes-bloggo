@@ -175,7 +175,7 @@ Space 220 has 2 seatings: **Space 220 Restaurant**, and **Space 220 Lounge**. I 
 But the lounge turns out to be better than the restaurant. Here are the differences:
 
 * **Space 220 Restaurant:** Tasting menu **only**. You get to sit very close to those space windows.
-* **Space 220 Lounge: ** You can have bar food OR the tasting menu, so you're not restricted in the food. There's actual seating and not just bar seating. You sit maybe 20 feet away from the windows.
+* **Space 220 Lounge:** You can have bar food OR the tasting menu, so you're not restricted in the food. There's actual seating and not just bar seating. You sit maybe 20 feet away from the windows.
 
 Knowing what I know now, I prefer the lounge over the restaurant due to the optionality. We ordered the main tasting menu and it turned out to be delicious and we were extremely full. But it's nice to have the option to additionally order more bar food / snacks as well.
 
