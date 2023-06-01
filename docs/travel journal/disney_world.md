@@ -247,6 +247,8 @@ We did the Harry Potter ride, which was great, because it closed shortly for the
 
 Running out of rides, we just did the Mummy ride like 3 more times after we've completed all attractions at the park.
 
+Most of the rides were boring and you basically put on 3D glasses and the ride moves in-place. There weren't many rides that actually had a roller coaster, aside from Mummy + Rockit Roller Coaster + Harry Potter, but one of them was closed.
+
 ### Tickets / Express Pass
 
 Their tickets were paper tickets, and for the life of me, I couldn't set up their express pass to the app. So they ended up always having to scan my paper express pass.
@@ -278,3 +280,7 @@ Anyway, while we saw the rocket vertically ascend, I was too slow with my phone 
 ## MCO Airport (May 1)
 
 We reluctantly checked out of the massively expensive hotel the next day and went to the airport. Their lounge was nice. Spatious, floor to ceiling windows both looking at the tarmac and inside the airport. The food was "meh" though--mainly just penne pasta and a bunch of pastries. Coffee is from a coffee machine, and while there is a barista inside the lounge, you have to pay for it if you want him to make it for you.
+
+## Conclusion
+
+If I had to redo this trip, I probably would have skipped Universal Studios (kind of boring) and instead just hung out around the resort a bit more and do some free exploration of Orlando.
