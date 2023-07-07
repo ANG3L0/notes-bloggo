@@ -90,6 +90,8 @@ I took a 2-month cycle of tongkat ali, at 400mg per day, as recommended by Andre
 
 ### Results
 
+#### Physical
+
 I took a testosterone test last year:
 
 ![Pre-tongkat testosterone levels](images/test-levels.png)
@@ -103,6 +105,14 @@ After many months of weightlifting + creatine + tongkat, my results are thus:
 Some of this can be due to intraday fluctuations, as test levels fluctuate up to 30-35% a day. So we can just say "my test level stayed about the same (at a very low level)."
 
 Anyway, I was looking for a result that is more than 50% (or 765++) to be able to confirm tongkat's efficacy. This is because a tiny increase in test is not going to help me much for weightlifting nor muscle building. Anyway, this was not the case for me, so I will say <mark>**tongkat ali is completely ineffective** for *me*.</mark>
+
+#### Mental
+
+I feel a lot more aggressive when on this. Much more easily agitated. But could just be placebo and me using supplements as an excuse to be short-tempered. I feel in the 2-month cycle though my most aggressive is 1 month in. Now I feel normal.
+
+Maybe there's an adaptation to tongkat and you only get a test boost 1 month in and I missed that window in my test results?
+
+But if the test boost is only temporary I don't see how they can help with a longer-arching goal like increasing lift size.
 
 ### Conclusion
 
