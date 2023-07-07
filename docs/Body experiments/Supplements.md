@@ -43,7 +43,7 @@ I forgot to take it in month 2, week 2, and then retook it month 2, week 3. I we
 
 I also took a week off creatine between month 4 week 3, and month 5 week 1 (rested for a week, forgot to take creatine). Went from:
 
-* 160 lbs, 25 max -> 160 lbs, 23 max
+* 160 lbs, 25 max -> 170 lbs, 23 max
 
 With creatine it seems like I can keep the reps up month-to-month even when I increase weights. But when I stop it, I lose out on a couple reps. **This is important because it's the last few reps that give you most of your gains.**
 
