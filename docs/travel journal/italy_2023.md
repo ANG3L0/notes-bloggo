@@ -40,7 +40,7 @@ As such, we went to a restaurant called Tonnarello where most of their pastas ar
 
 The pasta was great, and the tiramisu is to die for. Their wine is too expensive though (5 euros for a glass of house wine and 16.5 euros for a handle--also, their house wine is WHITE wine, ew).
 
-<img src="images/tonarello.jpg" alt="Tonarello" style="zoom:20%;" />
+<img src="../images/tonarello.jpg" alt="Tonarello" style="zoom:20%;" />
 
 After that, we walked around a bit to hunt for a magical pastry called maritozzi. We found one and ate it:
 
@@ -48,7 +48,7 @@ After that, we walked around a bit to hunt for a magical pastry called maritozzi
 
 We walked off the calories by going to Giolitti and having a giant gelato (despite ordering the smallest size, we still got a lot--the trick is to have your female companion ask for the gelato with a smile, and they'll give you bigger scoops and heavy cream for free).
 
-<img src="images/giolitti.jpg" alt="giolitti" style="zoom:70%;" />
+<img src="../images/giolitti.jpg" alt="giolitti" style="zoom:70%;" />
 
 And then we walked it off further by wandering around town, then into a department store to do some window shopping. And then finally went back to our hotel which is located next to Roma Termini.
 
@@ -118,7 +118,7 @@ When we were done swimming around the waterfall, we got on board again and washe
 
 All things good must come to an end and we docked at around 4:15PM. And then we walked back to our hotel and showered where I'm now typing this up. BTW, below are how the pictures came out (only 2 below, but you get the idea):
 
-<img src="images/boat1.jpg" alt="boat" style="zoom:30%;" />
+<img src="../images/boat1.jpg" alt="boat" style="zoom:30%;" />
 
 ![boat2](images/boat2.jpg )
 
@@ -146,7 +146,7 @@ We got up early and took the ferry from Salerno to Positano. At around 10:30AM w
 
 The photos and videos look something like this:
 
-<img src="images/positano_me.JPG" alt="Me asf" style="zoom:20%;" />
+<img src="../images/positano_me.JPG" alt="Me asf" style="zoom:20%;" />
 
 Really great, I know. The program ended at around 12:30PM and and then we ate lunch. After lunch, we walked around town, stopping at any shops that has an AC.
 
@@ -246,7 +246,7 @@ There's also a tennis court but I don't think we'll use it.
 
 We chilled for a bit, and took photos around the hotel grounds. They all look like some variant of the below, with varying success on posing/smiling properly.
 
-<img src="images/garden_photo_3.jpg" alt="garden photo" style="zoom:20%;" />
+<img src="../images/garden_photo_3.jpg" alt="garden photo" style="zoom:20%;" />
 
 While walking around taking pictures, I realized there's electric charging in the parking lot and my Jeep 4xE (Compass Trailhawk) is a hybrid. So I charged it for an hour and got it to ~40% and went into a nearby town to have dinner. We had:
 
@@ -263,7 +263,7 @@ For only ~90 euros.
 
 ![pici](images/pici.jpg)
 
-<img src="images/pork_pasta.jpg" alt="tagliatelli" style="zoom:25%;" />
+<img src="../images/pork_pasta.jpg" alt="tagliatelli" style="zoom:25%;" />
 
 This was extremely delicious. Then, we went back home and called it a day.
 
@@ -285,7 +285,7 @@ It was a ~1 hour 20 min drive, and I used all electric. At around 60km, I was ab
 
 Expenses aside, we were sat down immediately with a red wine welcome drink where a bell boy was standing there guarding a luggage like a soldier for 20 minutes while our room was being made ready. While we were waiting, we were given a *fucking itinerary* of what we'll do that day:
 
-<img src="images/hotel_itinerary.jpg" alt="itinerary for a hotel" style="zoom:20%;" />
+<img src="../images/hotel_itinerary.jpg" alt="itinerary for a hotel" style="zoom:20%;" />
 
 Once our room was ready shortly after, we were guided to our room, which had a free upgrade on behalf of Serena's Amex Platinum booking this place. Once we arrived to our room, there was a free bottle of Rose waiting for us in the room. The room was magnificent. It's hard to describe in words but here are the highlights:
 
@@ -324,9 +324,9 @@ After bathing, I video-called my parents to flex and called it a day.
 
 We woke up at around 7AM so we can secure the best table available for breakfast at 7:30AM. There's only 1 table that had the best view in the house, and we wanted it. While we were waiting for the breakfast buffet to open, I snapped a few pics.
 
-<img src="images/poser_shot.jpg" alt="me being a poser" style="zoom:20%;" />
+<img src="../images/poser_shot.jpg" alt="me being a poser" style="zoom:20%;" />
 
-<img src="images/brekkie.jpg" alt="breakfast" style="zoom:20%;" />
+<img src="../images/brekkie.jpg" alt="breakfast" style="zoom:20%;" />
 
 Because we weren't going to have lunch, we stocked up by eating a lot of breakfast and taking some candies / water from the spa area, as well as a chocolate brownie from the buffet area in case we were hungry later. Also, we ate a very full breakfast so we can stay full for most of the day.
 
@@ -353,9 +353,9 @@ Arriving to Mugello, we went to our BNB which is basically a large room with a l
 I drove about 10 minutes into town for dinner. We had:
 
 * Some really great ravioli that's stuffed with cheese, but also has a semi-sweet ground sausage scattered on top of it. Really amazing. And the hard thing about Italian food to describe is that while the food is *simple,* it's still really good because the ingredients somehow just taste more fresh and vibrant.
-* 2 pizzas: 1 "spicy" pizza (not spicy at all but was a tiny bit smoky), and 1 Heart-Shaped Pizza (burrata  + parma ham). It was Nirvana.
+* 2 pizzas: 1 "spicy" pizza (not spicy at all but was a tiny bit smoky), and 1 Heart-Shaped Pizza (burrata  + parma ham). It was Nirvana (not sorry).
 
-<img src="images/heartshapedpizza.jpg" alt="heart shaped pizza" style="zoom:20%;" />
+<img src="../images/heartshapedpizza.jpg" alt="heart shaped pizza" style="zoom:20%;" />
 
 Went back to the BNB, browsed the internet a bit and then typed this up.
 
