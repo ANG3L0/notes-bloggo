@@ -149,6 +149,8 @@ Later on, the tour guide showed us "rest stops" that used to exist--these were l
     <figcaption>Typical lodging / rest stop for ancient long-haul traders.</figcaption>
 </figure>
 
+
+
 We then went to a textile shop where we saw them weave everything from cotton to silk to agave, and we bought maybe $100 USD worth of stuff. Walking around, we also saw a friendly knife maker that let us play with his scissors and knives:
 
 <figure markdown>   ![Morocco journey](images/morocco-knifemaker.jpeg){ width="600" } </figure>
@@ -233,6 +235,8 @@ We then settled down at a sand dune at around 7PM to watch the sunset. By this t
     <figcaption>They thought I couldn't snowboard so told me to sit on the snowboard. To be fair, my shoulders look stiff AF.</figcaption>
 </figure>
 
+
+
 It was a cool experience but I only rode it once since my mouth was full of sand by the time I hit the bottom of the slope. Also, walking back up sucks because while it's a great thigh workout, breathing hard while there's a ton of sand in your mouth is not fun.
 
 After we watched the sunset, we kept riding the camels to get into the hotel. By the time we got there, it was about 9:15PM where we were served some tasty Moroccan tea. So the whole 'camel journey' lasted about 4 hours, 15 minutes. We were told that dinner was at 9:40PM so we went back to our hotel and rinsed the sand out of our mouths and ate dinner. It is a tent in the middle of the desert, but <mark>**they miraculously had hot-running water, shower, a sink, and a toilet inside our tent**.</mark>
@@ -262,6 +266,8 @@ The next day we were picked up by our driver around 10AM and went to visit the n
     <figcaption>Nomad dwellings.</figcaption>
 </figure>
 
+
+
 They gave us "Berber pizza" which is basically like a fresh-grilled naan sandwich with tomatoey stuff sandwiched in between. They also gave us Moroccan tea so we can sit and chill with our driver / guide. Had a lengthy discussion with our guide about the nomad folks and how his family used to also be nomads. We concluded that despite the harsh conditions that they need to live in, the kids looked genuinely happy and that life was simpler. Maybe satisfaction in life doesn't have to come in massive wealth or brand names or other material things.
 
 After that, we went to play with ATVs! We rode to a local peak and the view was amazing. We took a bunch of pictures, but I won't show them here because they don't really capture how high up we climbed with the ATVs--but here's a video of me sucking at ATVs:
@@ -273,6 +279,8 @@ After that, we went to play with ATVs! We rode to a local peak and the view was 
 </video>
     <figcaption>I didn't fall.</figcaption>
 </figure>
+
+
 
 We were still in the same desert area but instead of going back to the tents for that night the tour guide had arranged a hotel for us to stay at. This is because it can get very hot and the weather can get very bad, very quickly, so staying for 1 night only in the tent minimizes our exposure. And I'm glad we switched because **as soon as we got to our hotel, there was a major sandstorm.** We can hear the wind whipping through the outside and when I peaked outside our room to the courtyard, a ton of sand was swept in by the storm--<mark>**the air was literally a brown fog, indoors**</mark>.
 
@@ -308,6 +316,8 @@ After that stop, we saw some goats and kept driving until we reached **Ouzazarte
 </video>
     <figcaption>Yum</figcaption>
 </figure>
+
+
 
 They call it Hollywood of Africa because tons of movies were filmed there. Some names that come to mind:
 
@@ -441,6 +451,8 @@ Then, he took us to a market. As you'll see below, the market is very similar to
     <figcaption>Was delicious. Had tons of cinnamon smell to the coffee and other herbs. Very hot. The vendor actually poured me a coffee already and our guide told the vendor to put the coffee back in and re-pour it slowly so we can film it lol. I was good either way but wow they really care.</figcaption>
 </figure>
 
+
+
 Paid him 10 DH ($1 USD); I think going price is actually 5 DH though--whatever, he poured it twice so he should get twice the money.
 
 #### Marrakesh square
@@ -545,6 +557,8 @@ We then walked around the town some more, navigating the maze that is their town
 </video>
     <figcaption>All details are painstakingly man-made.</figcaption>
 </figure>
+
+
 
 Alas, a big wooden bowl for food was like 800DH and we can't really justify that purchase. They also didn't have cutting boards though, which I would've liked to have buy. Still, if they had the right product, I'd much more gladly buy this than leather goods because the dude showed us his craft without asking for anything in return.
 

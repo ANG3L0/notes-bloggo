@@ -154,6 +154,8 @@ I tested this on the 2nd-midday on less popular restaurants to make sure it work
     <figcaption>5 tabs auto-searching every 1 second, averaging a 0.2 second latency.</figcaption>
 </figure>
 
+
+
 **And finally, through the power of technology...**
 
 **...still wasn't able to book a reservation!**
@@ -203,6 +205,8 @@ To be fair though, we got the topmost room that had:
 </video>
     <figcaption>Fireworks from Hollywood Studios as seen from our living room window.</figcaption>
 </figure>
+
+
 
 **Additional downside:** While they gave us a little cake for Serena's birthday, they refused to give us utensils. So we ate the cupcake like with our hands.
 
