@@ -1,0 +1,3 @@
+
+- If my aunt's facing leukemia, death, and an extremely physically painful existence can find a way of being happy by simply having her nephew visit, I have no excuse of not finding a way to be happy in almost any situation. **Don't worry, be happy.**
+- Serena's masseuse doesn't do marketing. Purely word of mouth. She has clients that she massages for 8 hours at a time (high-ticket). The best kind of businesses are ones where quality is so good that people don't mind paying a lot for (in both time and finance).
