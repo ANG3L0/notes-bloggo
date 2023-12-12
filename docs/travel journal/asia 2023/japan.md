@@ -156,4 +156,105 @@ After that, we went up to the 9th floor at the jump store and I took some photos
 
 Looked at Pokemon store as well.
 
-Then, we went to eat some Hokkaido ice cream.
+Then, we went to eat some Hokkaido ice cream. Went home, typed this up, and slept.
+
+### Dec 12: Visiting Sesame Street
+
+Met with Serena's parents at around 10AM. Traveled a few stops to Umeda, where we walked around department stores.
+
+At around 11:30AM, we went to a seafood place where they served:
+
+* A giant fish head
+* An assortment of sashimi
+* Miso soup
+* Rice
+* And 6 small appetizing plates (like at a Korean restaurant)
+
+Guess how much this was?
+
+![Ridiculous value bento meal](../../images/seafood_keiseki.jpg)
+
+**This was only 1000 yen per person, or $6.90 USD (nice!).**
+
+Then, we walked around department stores a bit more. At around 2PM, we decided to go to Harbs. Manhattan has Harbs, but the one closest to us shut down so there's no more accessible Harbs for us in NY.
+
+Harbs is a Japanese desserts place and we ordered a lot of cake/set menus. Not the cheapest, but not the most expensive. We got sets because the drinks were included, and they had a rule that you *had* to order a drink if you ate there. So you're almost forced to order a set, because it is much cheaper than ordering a cake + drink separately. A set is some pasta + drink + a half slice of cake. Here's a sample of a whole slice of strawberry tart (note how big it is):
+
+![Harbs big cake](../../images/harbs1.jpg)
+
+They also get little details right. Their earl grey tea with lemon has the lemon peel, peeled to prevent the tea from getting too bitter.
+
+![Lemon tea harbs](../../images/lemon_tea_harbs.jpg)
+
+Walked around even more in department stores.
+
+Got some small One Piece plushies at the Mugiwara store nearby. One for me, one for my brother since he also likes One Piece.
+
+Later on, ended up at a popular grilled beef place called Yakiniku En. There's the OG place and the new one in the hotel. Not many know about the latter and the former's full always. But we checked the OG place anyway just to be sure; turns out they have walkie talkies and they just sent us to the new place and they welcomed us.
+
+It was delicious. We only had small bites since we booked a crab place for 7:30PM. We had:
+
+* Wagyu beef
+* Beef tongue with green onion inside
+* Chicken thighs
+* Raw beef heart
+* Egg yolk with raw beef sushi
+
+The fire's so hot that any drop of fat from the meat down to the fire causes a big flame to rise.
+
+<video controls  style="height:720px;">
+<source src="../../images/yaki.mp4" type="video/mp4">
+Your browser does not support the HTML5 video tag.
+</video>
+
+![Chicken thighs on roast, beef heart sashimi, and yolk beef sushi](../../images/yaki1.jpg)
+
+![Wagyu & beef tongue](../../images/yaki2.jpg)
+
+After our first dinner, we walked around for a bit. We went to a store where there's those machines where they dispense a large plastic ball, and you get a mystery gift inside. Serenas went for the Koala March machine and got a mini, pink Koala March box, and inside it is a pink Koala ring.
+
+When we're done with that, we went to this Japanese store called Gelato Pique. They have a crossover with Sesame Street. They sell PJs and they are soft and stretchy. Made of mostly polyester and 1% spandex. But they are cute:
+
+![Cookie monster PJ set](../../images/sesame1.jpg)
+
+![Button up sesame](../../images/sesame2.jpg)
+
+The first one isn't that practical since you can't really go outside with it. The blue makes it hard to pair the hoodie, and the hoodie droops so low that you can't see anything. Looks like a Halloween costume. You can't ever bring the pants outside since it seems like the material that would just absorb dirt and grime. It's also a bit too long so would drag on the ground. And in NY, you can be sure that one trip in the subway with this and you can set these pants on fire.
+
+So the only use case for the PJ pair is at home. And to get the pair gets twice as much as the button up.
+
+The button-up is way more functional. The more navy blue makes it easier to match. And the buttons are Sesame Street characters, which is dope as hell. So I bought that one. About 11800 yen ($81 USD). Can be worn at home during winters and chill, or worn outside on a winter day.
+
+After a good day of shopping, went to eat crabs. Had all kinds of varieties of crab:
+
+* Crabs in cheese sauce
+* Crab in steamed egg with a tomato sauce
+* Sashimi crab legs
+* Cooked crab legs
+* Crab siu mai
+* Various crab sushi, including crab innards sushi
+* Bunch of veggies, like enoki mushrooms
+* Konjak noodles
+
+Spread example:
+
+![Crab place spread](../../images/crab_spread.jpg)
+
+And, at the end, once we were mostly done with everything, they will add egg and rice to the crab soup hot pot to make porridge. This is reminescent of Korean hot pot places where they'll take the rest of the spicy sauce and use it to do fried rice for you.
+
+Once we were done with that, they served vanilla ice cream with matcha. Matcha's done with matcha powder + boiling water--they mix it and then pour it on top of the vanilla ice cream. By liquid matcha's cold by the time you eat it as it cools down touching the ice cream.
+
+You eat it by scooping the vanilla ice cream and scoop some liquid matcha up with it--very nice juxtapose between the sweetness of the vanilla and the slight bitterness of matcha.
+
+<video controls  style="height:720px;">
+<source src="../../images/vanilla_matcha.mp4" type="video/mp4">
+Your browser does not support the HTML5 video tag.
+</video>
+
+Once we were done with that, we walked home as Serena was tired. Serena's parents were more energetic, so instead went on to walk around Osaka some more.
+
+Oh, to be young again.
+
+On our way home, we stopped by Lawson (small convenience store, like 7/11), and got 2 **dorayakis.** They're like pancake with stuff red-beans, except our dorayaki also has cream in it so it was extra yum.
+
+### Dec 13:
