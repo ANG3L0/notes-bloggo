@@ -6,6 +6,8 @@ comments: true
 
 We cover multiple regions in Japan. Hope you enjoy.
 
+For the entire trip's itinerary, go [here](../itinerary).
+
 ## Osaka
 
 ### Dec 10: Landed, and already a fugitive
@@ -82,3 +84,76 @@ As I was paying, a fresh batch came out and I pointed "fresh" and she gave me th
 **2 times in 1 day.**
 
 ### Dec 11: Universal Studios
+
+Woke and and went to Universal Studios.
+
+But first, we stopped at their City Walk (their entrance area), and had some McD's. Japanese McGriddles are interesting: they're just like Egg McMuffins except the buns are pancake that is soaked in a little bit of syrup. Also bought some black coffee from a vending machine. Here's what it looks like:
+
+![Mcdonalds USJ spread](../../images/mcd_usj0.jpg)
+
+![Mcdonalds Japan Mcgriddle](../../images/mcgriddle_jap.jpg)
+
+How USJ works is your fastpass gives you a schedule. Unlike US, you can't just spam using fastpass, since everyone will just do that and your fastpass wait becomes as long as a regular wait. USJ has these restrictions on your fastpass:
+
+1. You must visit certain attractions at certain times. Here's our schedule and my review of the rides:
+    1. Harry Potter & Forbidden Journey ride 10:30 to 11:00 (fun, and you get to fly around everywhere)
+    2. Flight of Hippogriff 11:00 - 11:30 (exciting, but really short, maybe like 20 seconds)
+    3. Mario Kart Koopa's Challenge 12:30 - 13:00 (kind mid--just a video game powered by AR so it's sort of like Disney's toy story shooter)
+    4. Yoshi's Adventure 13:00 - 13:30 (one of the most fun--chill ride, but you get to slowly see a lot of the famed USJ's Super Nintendo World decor up close).
+    5. Spider-Man 4K3D 14:30 - 15:00. We didn't go and opted to stay in Super Nintendo World to do a bunch of eating. The ride's old and spiderman is boring. And we did it already in Florida.
+    6. Hollywood Dream - The Ride: Backrop 16:30 - 17:00. This was probably the best ride and most thrilling. Played Michael Jackson's *Bad* during the ride. Our ride went backwards so you can't anticipate the next turn. The normal adrenaline rush provided by a roller coaster is further enhanced by the feeling of the unknown. Sort of an extreme version of walking with your eyes closed for a prolonged period of time and hoping you don't bump into something.
+
+2. Further, you can only visit these rides once. For example, we can't do Hollywood Dream multiple times between 16:30 - 17:00. Once you use your FastPass once in that time slot, you must line up again in the regular line.
+
+Before we hit any of the rides though, we went to Minions land because our first ride doesn't start until 10:30 and we entered at around 8:30. This was my favorite poster in Minion's land:
+
+![Einstein minion at USJ](../../images/minion_einstein.jpg)
+
+Then, we did the Harry Potter rides and had some food there. It was OK. We've had butterbeer a few times before, so nothing to write home about. After, we had some time to kill before allowed in Super Nintendo land, so we went to take some photos with Sesame Street characters. I like this one where I am flexing with Bert after he tapped my biceps and posed that I am strong lol.
+
+![Showing off muscles with Bert](../../images/trenbert.jpg)
+
+Finally, we went to Super Nintendo World and it was amazing. It's as colorful and vibrant as you see on YouTube. The land is so engaging because there's so many goombas, mushrooms, and a ton of other setpieces *that actually move.* So instead of just still decor, you're put into an illusion that you're actually inside a Mario world. This video from the Yoshi's adventure ride sort of shows what I'm talking about.
+
+<video controls  style="height:720px;">
+<source src="../../images/marioland.mp4" type="video/mp4">
+Your browser does not support the HTML5 video tag.
+</video>
+
+After the rides, we had lunch. I didn't really care about the food quality so I just ordered what would look nice on camera. Here's a video walkthrough of all the dishes, up close and personal:
+
+<video controls  style="height:720px;">
+<source src="../../images/mario_food_walkthrough.mp4" type="video/mp4">
+Your browser does not support the HTML5 video tag.
+</video>
+
+Lunch wasn't enough, so during the meet & greet with toad, I ate him. After that, we went around some souvenir shops and took photos of us wearing funny hats. So I wore a toad hat to commemorate his passing.
+
+![Did I violate toad?](../../images/toad_violation.jpg)
+
+![Wearing a toad hat](../../images/toad_hat.jpg)
+
+We eventually said goodbyte to Super Nintendo / Mario Land and had to kill time before our last ride. So we went through all the souvenir shops and did a bunch of window shopping. They apparently have hats where you can squeeze the bottom of it, and another part of the hat would move. Here's a snoopy one in action.
+
+<video controls  style="height:720px;">
+<source src="../../images/snoopy_hat.mp4" type="video/mp4">
+Your browser does not support the HTML5 video tag.
+</video>
+
+An interesting thing here is that if I keep it squeezed, the ears stay up. I would have thought that squeezing it pumps some air, it'd only flap up (i.e. goes down in its own due to gravity). But nope, keeping the balls squeezed make it stay up. Maybe it pushes a column of air and inflates something inside the ears to have it stay up, and when you let go of the balls, the air retracts back down/away from the ears.
+
+Anyway, after our last ride, we met up with Serena's parents for dinner at a department store. Had iberico pork. Very good. I especially like their mascot, which is a happy, fat pig, doing karate roflmao.
+
+![Yummy pork bento set](../../images/fried_iberico.jpg)
+
+![Funny pig mascot](../../images/funny_pig.jpg)
+
+After that, we went up to the 9th floor at the jump store and I took some photos with Luffy + a JJK poster.
+
+![Me and luffy](../../images/me_x_luffy.jpg)
+
+![Me and Yuji](../../images/me_x_yuji.jpg)
+
+Looked at Pokemon store as well.
+
+Then, we went to eat some Hokkaido ice cream.

@@ -4,6 +4,8 @@ comments: true
 
 # Hong Kong
 
+This only covers a part of my epic journey across Asia across ~5.5 weeks. The entire [itinerary is here](../itinerary).
+
 ## Nov 22 - 24: Continuous Eating
 
 On November 22, we left for the airport in the morning. Normally, Priority Pass lounges are shit because they're so crowded. Hanoi airport's was great. They refilled food constantly (even if they haven't run out at all)--they had delicious pho, along with a ton of other food selections. Coffee abound, and it is one of the few Priority Pass lounges left that let you have free-flowing, free alcohol.
@@ -671,7 +673,7 @@ Then, we went to the Pure gym upstairs. This is a premium gym in Hong Kong (thin
       <source src="../../images/maitou_icecream.mp4" type="video/mp4">
       Your browser does not support the HTML5 video tag.
     </video>
-
+    
     
     After that, we walked around a bit and ate dessert. I ate a tart, and we bought some snacks with us to go back to Hong Kong with.
     

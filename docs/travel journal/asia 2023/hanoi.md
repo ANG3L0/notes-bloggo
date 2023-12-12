@@ -3,6 +3,8 @@ comments: true
 ---
 # Hanoi
 
+This is only the beginning of a 3-part journey. The entire trip's [documented here](../itinerary).
+
 ## Nov 14 - 16: Departure
 
 Local time: 4:30PM.
