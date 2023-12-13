@@ -257,4 +257,94 @@ Oh, to be young again.
 
 On our way home, we stopped by Lawson (small convenience store, like 7/11), and got 2 **dorayakis.** They're like pancake with stuff red-beans, except our dorayaki also has cream in it so it was extra yum.
 
-### Dec 13:
+### Dec 13: 3 dinners
+
+Went to Abenas Harukas to eat some sashimi, sushi, nigiri, and other goodies like steamed egg, in Japanese Bento style.
+
+![Good bento at the mall](../../images/bento_mall.jpg)
+
+After that, we walked around and hunted around for dessert. We found a place that does Red / White Bean An. Basically, these are anko (red bean paste made from Azuki beans) and some other white paste made from some other beans, put between 2 batters. They'd:
+
+1. Oil the metal masks.
+2. Spray batter on.
+3. Put bean paste on.
+4. Put the wide with cooked batter + bean paste on top of freshly squeezed batter.
+5. Flip it and finish cooking it once the other side's done as well.
+
+Steps 2-5 in video:
+
+<video controls  style="height:720px;">
+<source src="../../images/making_azuki.mp4" type="video/mp4">
+Your browser does not support the HTML5 video tag.
+</video>
+
+Walked around some more and hunted down something I've always wanted to try but only have seen on YouTube. It's basically white bread, and in the middle is Japanese fruit and cream. I think I saw some ASMR of some Japanese bakery making it a while ago and have wanted to try it since.
+
+![Japanese fruit in cream](../../images/jap_bread_cream.jpg)
+
+It didn't disappoint.
+
+We then went to a place where you can play games, and it's 7 floors. You can do everything from:
+
+* Boxing combo practice
+* Tons of arcade games, including shooting, dancing, and racing games
+* Golf simulator
+* Batting practice
+* Shooting practice
+* And a lot more
+
+Here's some photos:
+
+![Golf simulator](../../images/golf_sim.jpg)
+
+![Boxing combo practice, in Japanese](../../images/box_jap.jpg)
+
+The boxing combo game basically has you punch the number that the speaker calls out. Except they call it out in Japanese. So if you can't count in Japanese (like me), you'll be a bit slow. We also did Dance Dance Revolution, where out of 507,240 points, I beat Serena only by 10 points (so basically a tie).
+
+Having done some cursory exercise, we started to eat *3 dinners*.
+
+**First dinner, which I consider a snack was yuzu tsukemen.** Delicious. They have you mix an egg yolk, along with garlic oil, olive oil, salt, and pepper to flavor the dipping noodles. But this also has the added effect of making the noodles not stick together, which is a common problem with Afuri's tsukemen. The dipping broth is very umame, with a big hint of yuzu and tartness.
+
+We also go gyozo on the side.
+
+**Tsukemen = only 700 yen ($4.81) because happy hour (normally 1k yen).**
+
+**Gyoza = 400 yen ($2.75).**
+
+![Osaka tsukemen](../../images/tsukemen_osaka.jpg)
+
+Walked around for a short bit and then we had Osaka-style deep-fried skewers. We had everything from asparagus to eggplant to oyster to beef to chicken. And a plum (choya)-flavored hiball.
+
+![Osaka style fried skewers](../../images/osaka_skewers.jpg)
+
+We ate a lot more than what was pictured. About **5368 yen ($36.86) for 2 people.**
+
+Still, we weren't super full and it's our last night here in Osaka, so we wanted to eat one more dinner. We were feeling Udon and so just went to the same restaurant as the first day, since they served everything. This set was about **2400 yen ($16.48), for one. About double for both of us.**
+
+![Crazy set with tons of food](../../images/insane_set.jpg)
+
+As you can see, the set came with (clockwise):
+
+1. Tempura
+2. Bowl of udon
+3. Steamed egg with crab inside
+4. Bowl of rice
+5. Pickeld veggies
+6. Assorted sashimi, with a yuzu-infused / soy sauce white fish appetizer.
+
+Tea is free.
+
+**The total for** 3 dinners for both of us (so ***6 dinners***) was about ***$77.42 USD.***
+
+For SIX dinners.
+
+As this was our last night in Osaka, we walked around a bit more and then went back to the hotel at around 7PM. Here's a view of the river next to our hotel.
+
+![Osaka River](../../images/osaka_river.jpg)
+
+Osaka's pretty great for eating and playing. Not Vietnam-cheap, but quite cheap, and you don't have to worry about being hit with a moped. Would visit again 10/10.
+
+## Arima
+
+### Dec 14
+
