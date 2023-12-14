@@ -346,5 +346,130 @@ Osaka's pretty great for eating and playing. Not Vietnam-cheap, but quite cheap,
 
 ## Arima
 
-### Dec 14
+### Dec 14: Onsen + 200lb milestone reached
 
+Woke up and helped Serena's parents move luggage to Hertz to rent a car. At around 8:30AM.
+
+Once the car is ready, we looped back to the Holiday Inn that Serena and I were staying at and loaded up.
+
+Super spacious car. Toyota Noah.
+
+I fell asleep and woke up about an hour and a half later where we arrived to a place called A Happy Pancake. There's a location in K11 Musea as well, but this one is 1) much cheaper, and 2) gives you a lot more options, and 3) gives you a lot more quantity.
+
+This one's located at [AWAJISHIMA TERRACE, Awaji](https://www.tripadvisor.com/Restaurant_Review-g1022838-d20359405-Reviews-A_Happy_Pancake_Awajishima_Terrace-Awaji_Awaji_shima_Hyogo_Prefecture_Kinki.html)
+
+**Super, duper fluffy pancakes, topped with a lot of cream and ice cream.** We got:
+
+1. Strawberry flavor
+2. Assorted fruits flavor
+
+![Lots of pancakes](../../images/happy_pancake.jpg)
+
+The restaurant's located at seaside, and there are some instagram worthy photos to be taken there. After waiting in line for a bit, we took these photos:
+
+![Awajishima terrace photo op](../../images/happy_pancake_influ0.jpg)
+
+![You can do pullups next to the ocean](../../images/ocean_pullup.jpg)
+
+They all screamed at me not to do a pullup at the end of the stairway that leads to the ocean the 2nd time.
+
+![200 lbs of vitruvian man](../../images/vitruvian.jpg)
+
+After that, we continued the road trip again. After a while, we ended up at a beef restaurant. Also in Awajishima. And oh my god, was it a lot of beef. In the picture you may think that the volume of food is small for 4 people, but *after* a ton of cream/ice cream and pancakes, and the fact that it is ***almost all wagyu beef***--it is insanely filling.
+
+We once had wagyu beef from Buy Buy Sashimi before in NY. As big as only half a steak so you'd think you won't be full. I sous vide'd it + seared it. 2 of us at the whole thing. Could not move after, because it's like eating a few sticks of butter.
+
+And in fact, in the picture you see that there's a cube of fat. It's purpose is to literally butter the wagyu. Which already has high fat content.
+
+![Lots of wagyu](../../images/ultrabeef1.jpg)
+
+![Even more wagyu](../../images/ultrabeef2.jpg)
+
+<video controls  style="height:720px;">
+<source src="../../images/more_searing_wagyu.mp4" type="video/mp4">
+Your browser does not support the HTML5 video tag.
+</video>
+
+When we're done stuffing ourselves with beef that melts in your mouth, we walked around a bit to digest. But my greedy fatass bought some milk ice cream from LAWSON and ate it.
+
+I'm lactose intolerant so after a 90 minute ride when we arrived to our first onsen, I dashed to the restroom.
+
+We checked into the Onsen and the room is huge. Everything from:
+
+* Free azuki bean cake snacks
+* Chocolates
+* Free minibar with beer, vitamin c, water, tea, and more
+* Pudding
+* Coffee
+* **Kyoho grapes**
+
+Came with the room for free. The room also has its own onsen outside. Here's a rapid room tour:
+
+<video controls  style="height:720px;">
+<source src="../../images/rapid_onsen_tour.mp4" type="video/mp4">
+Your browser does not support the HTML5 video tag.
+</video>
+
+Then, we went downstairs to the common area to soak. I went in for about an hour. They had:
+
+* Sauna
+* A hot soaking tub where the water's clear
+* Hot soaking tub where the water's golden / brown--the spring water is naturally filled with a lot of salt/iron; supposed to be good for your skin's moisture
+* Cold plunge, which I did for 2 rounds.
+
+They had a scale there and I am now ~89kg, or about 200 lbs. +10lbs from Vietnam, even.
+
+Came back up, rested a bit, and had a gigantic dinner. Words can't really do it justice but as you'll see in the pictures below, it is quite a lot. And it is quite rare to have a meal where literally every single last bite is absolutely mind-blowing. And this is saying *a lot* because there's a lot of food.
+
+![Kaiseki appetizer](../../images/kaiseki0.jpg)
+
+This was the appetizer of appetizers.
+
+![Kaiseki seafood](../../images/kaiseki_seafood.jpg)
+
+This was the seafood / first course portion. It had (off the top of my mind--all sashimi):
+
+* Scallop nigiri (not pictured)
+* Shrimp nigiri (not pictured)
+* Lobster
+* Abalone
+* Tuna
+* Toro
+* Amberjack
+* Uni
+* Crab (not sashimi)
+* Golden sea bream--most expensive sashimi
+* Sea whelk
+* Special miso sauce to dip sashimi in
+* ...And a lot more I am probably not remembering. That's how much variety of food there was.
+
+The attention to details is insane. Even cucumbers are carved to be shaped like a frog. The balance of flavors is done well, and not flavor overwhelms another.
+
+![Frog in my food](../../images/kaiseki_frog.jpg)
+
+Absolute kaiseki heaven. But the meal continued with shows, actually. For example, they fired up some cotton candy for our sukiyaki before pouring the broth in. And, for dessert, they poured liquid nitrogen into some cream to freeze it.
+
+<video controls  style="height:720px;">
+<source src="../../images/suki_show.mp4" type="video/mp4">
+Your browser does not support the HTML5 video tag.
+</video>
+
+Final result for sukiyaki:
+
+![Sukiyaki in onsen hotel](../../images/sukyaki_onsen.jpg)
+
+After we had all the seafood above, and then a ton of beef from the sukiyaki, they gave us even more food. First, they gave us some steamed egg with shirako (cod milt AKA fish jizz) and chives.
+
+![Cod milt](../../images/chirako.jpg)
+
+Then, they gave us crab porridge:
+
+![Crab porridge](../../images/crab_porridge.jpg)
+
+Finally came the ice cream. No idea what flavor it is, and the colorful spheres are hollow inside and seem to dissolve in your mouth as soon as it touches your tongue.
+
+![Not sure what ice cream this is](../../images/onsen_ice_cream.jpg)
+
+After that, we went back to the room to enjoy some Kyoho grapes and just chilled, as I wrote this up. I should also note that for this onsen meal, **we have the entire room to ourselves and the table was huge.**
+
+### Dec 15
