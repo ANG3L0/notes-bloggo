@@ -390,7 +390,7 @@ And in fact, in the picture you see that there's a cube of fat. It's purpose is 
 Your browser does not support the HTML5 video tag.
 </video>
 
-When we're done stuffing ourselves with beef that melts in your mouth, we walked around a bit to digest. But my greedy fatass bought some milk ice cream from LAWSON and ate it.
+When we're done stuffing ourselves with beef that melts in your mouth, we walked around a bit to digest. But my greedy fatass bought some milk ice cream (and some instant noodles) from Family Mart and ate it.
 
 I'm lactose intolerant so after a 90 minute ride when we arrived to our first onsen, I dashed to the restroom.
 
@@ -472,4 +472,201 @@ Finally came the ice cream. No idea what flavor it is, and the colorful spheres 
 
 After that, we went back to the room to enjoy some Kyoho grapes and just chilled, as I wrote this up. I should also note that for this onsen meal, **we have the entire room to ourselves and the table was huge.**
 
-### Dec 15
+## Kyoto
+
+### Dec 15: I gave my phone to a Japanese grandma
+
+Woke up at the Onsen and ate breakfast at around 8:30, and *goddamn* is it good. Just like dinner, there's a large variety of things to eat, as well as various chefs coming in to demonstrate various culinary activities. Here's a video of all most of the food for breakfast:
+
+<video controls  style="height:720px;">
+<source src="../../images/onsen_bfast.mp4" type="video/mp4">
+Your browser does not support the HTML5 video tag.
+</video>
+
+They did shows for:
+
+* Rice: They scooped rice.
+* The tamago you see in the video. They poured an egg mix into a square pan and cooked it, rolled it up by flipping it, and then added more egg mix to the unoccupied portion of the pan. They repeated this process about 3x
+
+<video controls  style="height:720px;">
+<source src="../../images/onsen_tamago.mp4" type="video/mp4">
+Your browser does not support the HTML5 video tag.
+</video>
+
+* Roasted seaweed: they slapped seaweed onto a fire.
+
+For dessert was a fruit assortment (healthy)! The persimmon is a highlight.
+
+![Onsen breakfast dessert](../../images/onsen_bfast_dessert.jpg)
+
+After breakfast, we took a road trip to Uji, a place known for some of the best matcha in Japan. We went to a place called [Nakamura Tokichi Byodo-In](https://www.tripadvisor.com/Restaurant_Review-g946495-d3417954-Reviews-Nakamura_Tokichi_Byodoin-Uji_Kyoto_Prefecture_Kinki.html). They're famous for green-tea stuff and we had many-layered parfaits, along with a matcha drink. They also gave us 2 green teas. The place is a bit of a tourist trap / expensive though--2 parfaits is like 4000 yen for what's pictured below ($28.23, roughly). You may not think it's expensive because it's just American pricing, but American pricing *is* expensive in Japan. The view is *killer* though.
+
+![Uji matcha cafe](../../images/uji_matcha.jpg)
+
+Anyway, it turns out there was a car accident with our rental at the parking lot. Luckily, no one was injured except for the car and a parking lot fence. Fortunately, Serena's parents had to foresight to always purchase fully-insured car rental, so they won't be liable. The process to take care of a car accident in Japan is somewhat similar to the US:
+
+* You call the car rental company to notify them
+* You call the cops and have them file a report, and they'll contact the car rental company
+* You notify any other parties involved, in this case a parking lot employee
+
+For some reason, even though Serena's parents' phones had Japanese sim cards, they can't call 110 (police number). But Serena and my American T-mobile sim, can. So we just used my phone.
+
+There's a language barrier with the Japanese police though as most Japanese people don't understand English. There was an old lady walking by (reminescent of an old Japanese granny), so we surrounded her and gave her my phone so she can talk for us. She helped us out and gave police details about us and the car. Then she saw the fence and laughed. She went on her merry way after.
+
+Thereafter, we made our way to Kyoto and requested a car swap.
+
+Though that'll take like 30 mins, so we went to the nearby Kyoto train station, which is freaking huge, by the way, to have dinner. We went to this pasta place where you can order:
+
+* Medium, for 1 person
+* Large, for 1.5 person(s)
+* Large Large (not XL, but LL) for 2 persons
+
+For your pasta portion; all costs the same.
+
+We did 4 large and it's quite a lot.
+
+![Kyoto station pasta](../../images/kyoto_station_pasta.jpg)
+
+After that, we got our new car, parked it at the hotel, and walked to a famous street called hanamikoji. It has old infrastructure and was built during the Meiji era.
+
+Around there, we stopped by a stall and had a bunch of takoyaki.
+
+![Takoyaki near old town](../../images/takoyaki_hanami.jpg)
+
+After that, we went back to the hotel. The hotel also has a (small) onsen. I checked it out. It was hot, so I only stayed for 10 minutes and my skin was completely red. Though the hotel bathroom's quite nice and is one of those shower + tub combos. So I took a 15 minute lukecold shower + bath to reduce the reddening/very minor 1st degree burns.
+
+### Dec 16: Kiyomizu temple and tsunami at the hotel
+
+Woke up and we went to the Kiyomizu temple. About 1600 yen for parking for the whole day.
+
+Expensive if you're only there briefly; a great deal if you're there for a long time.
+
+It's a pretty cool place, where there tons of small streets with vendors selling everything from pastries to matcha-like goods. We went to the temple to take pictures, and it's pretty neat because these are old buildings, yet the entire area have these black, tiled roofs that look like something from a ninja movie.
+
+![Architecture near Kiyomizu](../../images/kiyomizu_area.jpg)
+
+After looking at the temples, there's a place where you can pour water on yourself for good fortune. And by fortune, I mean financial fortune. So while others poured a few drops on their hand and touched their face with it (or worse, sipping it from their hands), I baptized myself in financial holy water:
+
+<video controls  style="height:720px;">
+<source src="../../images/money_baptism.mp4" type="video/mp4">
+Your browser does not support the HTML5 video tag.
+</video>
+
+If I get rich in ~3 years, this is proven to work. If not, this doesn't work. I say 3 years because there's a fortune that if you trip near the temple, you either:
+
+* Will die in 3 years, or
+* Your lifespan is shortened by 3 years
+
+So let's just give it a 3-year timeframe.
+
+Below the temple are little streets, vendors, and small pockets where there's very nicely groomed zen-like gardens. We spent maybe an hour or 2 walking around, exploring shops, trying lots of free food samples, and ate a kaarage. Also bought some fluffy soap. They're super bubbly and have the texture of a water balloon, instead of normal handsoap that is hard / dry.
+
+Then, we went to a cool tofu place to eat lunch. How it works is they give you a hot pot of liquid tofu. And after a while, the surface of it will dry. When it tries, there's a thin layer of tofu that you can then unpeel with chopstocks. And layer by layer, you eat the tofu. Pretty unique eating experience. Here's the spread and how the scooping works:
+
+![Tofu meal spread](../../images/tofu_meal_spread.jpg)
+
+<video controls  style="height:720px;">
+<source src="../../images/tofu_skin.mp4" type="video/mp4">
+Your browser does not support the HTML5 video tag.
+</video>
+
+Post-lunch, I bought some souvenirs (booze) and dropped it off back at the hotel. Then, we went back out to walk around Kyoto. It was crowded, but it was cool to see all the different food stalls. Eventually, we ended up having afternoon tea which consisted of a small pizza and some desserts.
+
+Went back to the hotel's free lounge for a bit to drink some tea/coffee before our 6PM dinner reservation.
+
+At 6PM, we went to a restaurant that the hotel recommended: **Manzara**. We had a 8-course kaiseki thing, where they served a course one by one:
+
+1. Amuse bouche of veggie, egg, chicken breast.
+
+2. An assortment of veggie, ginger, yam, octopus, and really delicious chicken liver.
+3. Assorted sashimi.
+4. Thick soup with radish, rice crisps, yuzu, lobster or crab meat, cilantro, and some other stuff. **My fave.**
+5. Moist & tender steak with salad.
+6. Tempura of shrimp, shishito, and fish, with mashed radish + ginger.
+7. Rice with caramelized steak, miso soup, and a side of pickled seaweed.
+8. Dessert of green tea ice cream with mint, a super sweet strawberry, and a mediocre pineapple. Dish is kept refrigerated upon serving. Nice touch.
+
+![Kaiseki in Kyoto's famous Hanamikoji](../../images/kaiseki_8k.jpg)
+
+**8k per person.** Some highlights, some were OK. Not the best meal, but also not the most expensive ($61.92 USD/person after tax)--but expensive for Japan, so maybe 3.5/5.
+
+There are also reports of the place turning away white people and/or pretending not to have any available bookings. This can be interpreted as racism, but for me it seems like they just don't want to deal with the additional challenge of communicating in English as a lot of them aren't fluent (or understand basic English). And a lot of Japanese culture is really about doing the same thing over and over again, but being really good at it, so asking them to all of a sudden pivot from serving locals to serving tourists is a hard ask. In other words, the Japanese culture seems to encourage people to be really good at some things, but adaptation is not one of them. Asking them to do an even *slight* deviation from regular protocol is for them probably feels like them asking you or me to do the same exact thing for the rest of our lives.
+
+Culture differences.
+
+Went back to the hotel and went to the hot springs downstairs. All of 7 minutes, because while I started alone 3 other dudes came in, and it's not a big bath. So I left.
+
+Luckily, the in-room bathroom is literally a room for you to bathe in. There's a shower and a hot tub situated in a waterproof room. Meaning, even if you overflow the bathtub and flood the adjacent flooring, none of it leaks outside of the bath room, because the door is sealed to prevent water from going out.
+
+So I turned on the bathtub until it's full, jumped in, and kept the faucet on, while turning the showerhead on also, so there's as much water washing me as possible. Serena describes my bathing activities:
+
+> It sounded like a tsunami in there.
+
+Similar activities in other hotels inevitably causes some leakage/flooding outside the bathroom, and I inevitably have to ask hotel staff for 3-5 more towels to soak up the mess.
+
+This hotel?
+
+Not a single drop made it outside the bathroom.
+
+So while adaptation and deviation isn't one of Japan's strong suits, building great bathrooms sure is.
+
+### Dec 17: Arashiyama
+
+Woke up early and went to Arashiyama at around 7:50AM. We left early at around 7:30AM to avoid crowds and traffic. Ate breakfast at 8AM at a place that's popular and recommended by some YouTuber.
+
+Lots of carbs. I had a tamago-based bread, Serena ordered a roasted cheese hot dog, and Serena's parents ordered sets with assorted bread. We also ordered the fruit/cream sandwich we had earlier in the journey.
+
+Bread, lots of bread. Hot dog didn't come yet so not shown below. But note that each set has some parma ham / meats that comes with it.
+
+Not only that, a lot of Japanese restaurants force you to order 1 drink per person, which is why we ordered the set as it was more economically viable to have the set include the drink than to order the drinks separately (would be about $5-6 more per person at the minimum). So I also drank 2 coffees and some orange juice.
+
+<video controls  style="height:720px;">
+<source src="../../images/lots_of_bread.mp4" type="video/mp4">
+Your browser does not support the HTML5 video tag.
+</video>
+
+It was very filling.
+
+Next, we went to a bamboo forest. It looked really nice though I don't really know what its significance is. Quite cool though. Saw a couple do a floor-to-sky canopy shot so I tried to do the same; below's a test shot:
+
+![Canopy test shot](../../images/bamboo_canopy.jpg)
+
+Then, we went to nearby pockets of zen gardens and some temple where if you donate some yen and ring the bell, you get luck (again, in the form of money). This can be easily proven/disproven soon. Will report back.
+
+Others ring the bell once or twice which to be honest is not really trying. I made an earnest effort and rang *the shit out of the bell.* We shall see if Japanese temple luck is a real thing (i.e. will I be rich soon) or if I can just skip visiting anything religious or cultural going forward.
+
+
+
+<video controls  style="height:720px;">
+<source src="../../images/ring_bells_for_money.mp4" type="video/mp4">
+Your browser does not support the HTML5 video tag.
+</video>
+
+In the video I'm told to stop. But for science, and in an earnest effort to gain more net worth, I kept ringing the bell well after the video.
+
+We then walked around Arashiyama some more and visited various shops. Took photos with Rikkaluma amongst a bunch of other things. Bought some more booze (750mL). And we bought a snack as well which we eat later.
+
+Serena's dad returned the car for this leg of the trip. Went back to the hotel and ate the snack. This snack is kind of like a big piece of mochi, and you can put soy bean powder on top of it and then dip it into black sugar. I had no idea these 2 ingredients existed before today.
+
+<video controls  style="height:720px;">
+<source src="../../images/soybean_paste.mp4" type="video/mp4">
+Your browser does not support the HTML5 video tag.
+</video>
+
+Went out to dinner after, at Hanamikoji again, and found a place we can actually get in. I had a grilled duck set which looked like this.
+
+![Grilled duck set](../../images/grill_duck_jap.jpg)
+
+It was OK but the volume of food was lacking. Small slices of duck, which was then inevitably overcooked by the time it was served. I normally wouldn't mind a small meal but it was also expensive (3800 yen--about $26 USD).
+
+So, went back home and had a crab instant ramen we bought at Family Mart after our wagyu meal at [Arima](#arima). It was really good. The soup became really thick after 5 mins of soaking in the noodles. And the noodles aren't like most instant ramen noodles that are hard--these are bouncy and has a really fresh, ramen texture to it. Serena had this to say about the quality of these noodles:
+
+> If you served it on a different plate at a restaurant, I wouldn't know it is instant noodles.
+
+![Bouncy noodles](../../images/noodles_bouncy.jpg)
+
+Then, went to the boiling sauna downstairs for 10 mins and did a tsunami shower like yesterday again.
+
+## Fuji
+
+### Dec 18
