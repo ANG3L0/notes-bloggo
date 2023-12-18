@@ -669,4 +669,63 @@ Then, went to the boiling sauna downstairs for 10 mins and did a tsunami shower 
 
 ## Fuji
 
-### Dec 18
+### Dec 18: Taking pictures inside the onsen
+
+Woke up early and took the taxi to the Kyoto train station.
+
+The taxis are crown vic, and are old. Though they have a TV at the back of the seat playing commercials. Not sure if you can toggle it to play something else, but since I don't understand Japanese, I didn't mess with the screen much.
+
+At the end of the ride, you can navigate with the screen to pay with Apple Pay.
+
+Inside Kyoto station, we ate McDonald's. Same as what we ate at Universal Studios: McGriddle + Hash Brown.
+
+Boarded the shinkansen (bullet train) and went towards Odawara. I used an app to see how fast it went, and its max speed was about 175mph (280 kph). We saw rain, then snow, then sunshine. Cycled through seasons in about ~20 minutes. Here's a timelapse of us running through a storm system with snow in it, and then transitioning to sunshine by the time we hit the next stop (Nagoya).
+
+<video controls  style="height:720px;">
+<source src="../../images/bullet_time.mp4" type="video/mp4">
+Your browser does not support the HTML5 video tag.
+</video>
+
+To save space, the time-lapse video's sped up and so the rail/tracks can be very wobbly/hard to follow. But pay attention to the sky and see how it changes across these 20 minutes in the bullet train.
+
+We arrived about 2 hours later to Odawara and got a car.
+
+The Toyota *Serena.* After much prodding, I finally convinced Serena to take a picture next to the car.
+
+Before we set off to Mt. Fuji, we went around to find lunch. We found a place that serves all kinds of food. Off the top of my head, we got:
+
+* Grilled set with 2 scallops and crab innards with egg. Plus 2 mackerel and shrimp, and squid
+* Assorted sashimi.
+* 2 x 5 kaki furari (fried oysters)
+* Karaage.
+* Fried soft chicken bones.
+* Monkfish liver.
+* Chirashi bowl.
+* Ginger highball (tastes like ginger ale).
+
+
+
+<video controls  style="height:720px;">
+<source src="../../images/grilled_sets.mp4" type="video/mp4">
+Your browser does not support the HTML5 video tag.
+</video>
+
+It was tasty & filling, but we didn't go all out because the hotel we're about to go to has buffet dinner.
+
+Our hotel's next to Fuji Q, an amusement park with many of the world's scariest rides, but half of the scariest ones were closed so will be skipped. And Fuji Q's right below Mt. Fuji, so as we drove toward our hotel, we saw Mount Fuji:
+
+![Mount Fuji](../../images/fuji.jpg)
+
+And even in the hotel lobby and the onsen at their top floor, you can see Mt. Fuji. I don't have pictures of the onsen's view because unlike this one gaijin, I didn't take my smart phone into the onsen area and start snapping photos/videos (big no-no, and signs everywhere telling you not to take your smartphone to where other people take off their clothes) because I'm not an asshole. Instead of using lockers, this guy also just hung all his clothes in the common showers.
+
+But the view's OK. The inside area is fogged up so you have to splash water at the window to get a clear view of Mt. Fuji. The bottom 3rd of the window is completely greyed out so you have to literally stand up (and thus be not soaked in onsen water) to see Mt. Fuji and Fuji Q. The view's quite magnificent. But if you sit down, you'll be angled to see only the tip of Mt. Fuji. The visibility outside's even worse. Above the greyed out panels are not windows but a very heavily tinted window, so even the tip of Mt. Fuji isn't seen very clearly.
+
+After soaking in the onsen (or rather, standing), went back to the room and rested for a bit before dinner. For dinner, we grabbed almost everything the buffet has to offer. Here's the *initial* spread:
+
+![Dinner buffet spread](../../images/cray_dinner_buffet_spread.jpg)
+
+I can't name everything we ate for dinner because honestly I put too many things in my mouth to remember tonight.
+
+Post-dinner, went back to room, showered, and typed this up.
+
+### Dec 19: 
