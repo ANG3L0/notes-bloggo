@@ -728,4 +728,119 @@ I can't name everything we ate for dinner because honestly I put too many things
 
 Post-dinner, went back to room, showered, and typed this up.
 
-### Dec 19: 
+### Dec 19: In-room kaiseki
+
+Woke up a bit later today and had breakfast buffet. Mostly ate eggs, mashed lotus, mentaiko, and some udon. And a bunch of tea/coffee. I tried not to eat that much because I knew I had a big dinner coming.
+
+Then, we went to a nearby glass museum. It's mostly Italy and Venice / Murano-themed, but Chihuly also has some works displayed there (the latter being the least impressive). There's glass artwork that changes its color when displayed in UV light, and artwork that have hundreds of super-thin threads.
+
+![Venice artwork](../../images/venice_glassworks.jpg)
+
+The above artwork kind of looks like one of those sushi rolls. Would be cool if they sold these and you could just put rice / sashimi and scoop out of it and eat it.
+
+But anyway, before you enter the museum, the courtyard's decorated with a bunch of crystal trees / bridges. They sparkle whenever there's any wind because the sun's reflection changes.
+
+<video controls  style="height:720px;">
+<source src="../../images/crystal_garden.mp4" type="video/mp4">
+Your browser does not support the HTML5 video tag.
+</video>
+
+![Crystal garden](../../images/crystal_garden.jpg)
+
+And in the case of cloud cover, they turn on floodlights from the ground, pointing towards the crystal trees so they have the same effects.
+
+They also have large, intricate outdoor gardens where all the leaves and flowers are made out of glass. And, in addition, they have crystal trees look like they're covered with snow becasue its trunks and branches are meticulously wrapped to give it a white/snowy look.
+
+![Glass garden](../../images/glass_garden.jpg)
+
+![Crystal trees](../../images/crystal_trees.jpg)
+
+We then had a pasta lunch at the restaurant inside this museum/park area. The pasta's actually pretty good. And the bread was nice and warm too. The dessert's a chestnut "cake"--where the cake's made out of cream and meringue.
+
+After lunch, we walked around the area a bit more and found a cool shop where they have a Santa climbing up a chimney as decoration. Pretty cool.
+
+We originally wanted to spend more time to look at either some sulfur geysers or at another park, but ran out of time so drove back towards Mt. Fuji and went to the hotel: Shuhoukaku Kogetsu. The check-in area leads to a patio area which looks at lake kawaguchi (a lake made by a crater), and Mt. Fuji. Unfortunately there's cloud cover today so the mountain couldn't be seen, but the lake and the bonsai trees are pretty incredible:
+
+![Common hotel area, overlooking lake kawaguchi](../../images/lake_kawaguchi.jpg)
+
+Went to the onsen almost immediately after checking in, and it is pretty good. They have:
+
+* An outdoor onsen, looking the lake kawaguchi and Mt. Fuji (if no clouds).
+* An indoor onsen, where you can see the same thing. Has jacuzzi.
+* A sauna, at around 90C, and has a 12-minute clock. Pretty hot, actually. And dry enough to hurt my nose.
+* A foot massage machine in the drying area.
+* 3 full body massage machines in the common area.
+
+After onsen, they have free drinks (yes, beer and wine included) until 6:30PM. I mostly drank water/tea, but poured a beer because they had a machine that did this:
+
+<video controls  style="height:720px;">
+<source src="../../images/beer_machine.mp4" type="video/mp4">
+Your browser does not support the HTML5 video tag.
+</video>
+
+Went back to the room after drinks to prepare for our in-room onsen. How it works is someone comes to our room and serves us dinner.
+
+But before I talk about dinner, a room tour. The room has a foyer where you put your shoes. Our hostess put our shoes in the shoe closet for us. After the foyer is a little hallway with a toilet room and a bath room. The toilet is special because not because it's a Japanese bidet, but because it flushes itself when you close the lid. The bath is special in that the room is similar to an onsen bath--except there's also a mist machine.
+
+The little hallway also has a fridge, and other items for drinks, including:
+
+* A boiler--not the ones you have to press a button to boil water with. This one holds 2.2L of water and keeps it at 98C. So if you need tea or instant noodles, you get hot water instantly.
+* Tea set.
+* Tea leaves.
+
+After the little hallway is our room which is as big as any living room. It's tatami style, so only a dining table's put out. They also have intricately placed live flowers in a vase as decoration.
+
+Past the living room is our balcony, overlooking the Mt. Fuji + lake kawaguchi area. We also have a own private foot bath, whose temperature is adjusted to ~40C. Surprisingly, despite it being cold, dipping your foot in keeps you quite warm. The water goes almost up to your knees when you're in a seated position, so it's quite deep. There's a foot bath for commoners downstairs but you are quite cold if you use that one because it only goes up to your ankles.
+
+Here's a video tour of the room:
+
+<video controls  style="height:720px;">
+<source src="../../images/lake_gawaguchi_tour.mp4" type="video/mp4">
+Your browser does not support the HTML5 video tag.
+</video>
+
+Anyway, back to dinner. Here's the menu:
+
+![Kaiseki menu at lake kawaguchi](../../images/kaiseki_menu.jpg)
+
+The hostess explained each of the courses to us like a Michelin meal. And in fact, the ingredients and even the techniques of some of the dishes are Michelin level, especially the dessert where they had a pear+apple gel, and submerged pieces of apple/pear in it. Underneath this concoction is some kind of custard. I really like these kaiseki-style meals, because you sample a bit of everything just like a tasting menu, except it isn't pretentious and boring like most Michelin-starred French restaurants (just fancy ingredients made into cream form).
+
+Here's a video of our hostess explaining the first courses to us:
+
+<video controls  style="height:720px;">
+<source src="../../images/kaiseki_explain.mp4" type="video/mp4">
+Your browser does not support the HTML5 video tag.
+</video>
+
+And here's pictures of all the food we ate.
+
+![Appetizer](../../images/kaiseki_inroom_0.jpg)
+
+Here's the appetizers, as well as soup (in teapot), and some meats laid out for the next course.
+
+![Second course](../../images/kaiseki_inroom_1.jpg)
+
+Here's the assorted sashimi course, along with the wagyu beef course (main course of the meal).
+
+![Fish course](../../images/kaiseki_inroom_2.jpg)
+
+Here's the fish course, along with some dumpling course (grilled dish / warm dish in menu above).
+
+![Final kaiseki serving](../../images/kaiseki_inroom_3.jpg)
+
+And finally is the rice course + dessert.
+
+After that awesomeness is over, we went downstairs to take a look at some souvenirs. I bought a towel and some grape jelly drink that I'll consume later.
+
+Went back to the room and heated up some curry cheese instant noodle with the water boiler. And then ate it at the foot bath, while overlooking the lake.
+
+<video controls  style="height:720px;">
+<source src="../../images/cheese_curry.mp4" type="video/mp4">
+Your browser does not support the HTML5 video tag.
+</video>
+
+When I was done, I went and took a shower; tried out the mist thing but it turns out it's kind of cold as the water loses all of its heat when it's dissipated.
+
+Then, spent an hour writing today's entry. Gotta sleep now and wake up in 7 hours.
+
+### Dec 20:
