@@ -843,4 +843,83 @@ When I was done, I went and took a shower; tried out the mist thing but it turns
 
 Then, spent an hour writing today's entry. Gotta sleep now and wake up in 7 hours.
 
-### Dec 20:
+### Dec 20: Mt. Fuji Pictures
+
+Woke up and the clouds were finally gone. We can see Mt Fuji even at 6AM in the morning.
+
+![Fuji, 6AM](../../images/fuji_6am.jpg)
+
+After a bunch of pictures, went to eat breakfast, in which case we went to the balcony and took even more pictures and videos.
+
+For breakfast, I ate:
+
+* A couple of soba bowls
+* 2 tempuras
+* A bowl of curry rice
+* Pressed croissant
+* Some pickled appetizers (on the left in picture)
+* A bunch of assorted food, like grated yams, eggs, fish (on the right in the picture).
+* And probably a bunch of other stuff I forgot.
+
+ Like the previous onsen, the breakfast is buffet-style and is in a common area.
+
+![Onsen breakfast](../../images/onsen_bfast2.jpg)
+
+After breakfast was over, we took even more photos and videos. Here's a photo of Fuji from the common foot-bathing area and a video of me skipping stones in a yukata, with Mt. Fuji as backdrop, and it skips 4 times.
+
+![Fuji in common area](../../images/fuji_commons.jpg)
+
+<video controls  style="height:720px;">
+<source src="../../images/skipping_stones_fuji.mp4" type="video/mp4">
+Your browser does not support the HTML5 video tag.
+</video>
+
+After the photos were done, we took even more photos of our balcony with foot bath + Fuji. And then went to a viewpoint where there's a temple and Mt. Fuji in the background. I don't know the temple's significance but there's a lot of people there. So below's a photo of me photoshopping people out and also photoshopping some of the temple in.
+
+![Temple plus fuji](../../images/temple_fuji.jpg)
+
+Then we headed to an outdoor museum where there's tons of sculptures and displays from different artists. There was tons to see there, from giant, 3D windmills to Hercules statues, to a giant lopsided head crying. But this tower with glass-stained windows was pretty cool, and the walk down was also pretty badass.
+
+<video controls  style="height:720px;">
+<source src="../../images/glass_stairs.mp4" type="video/mp4">
+Your browser does not support the HTML5 video tag.
+</video>
+
+Headed towards a sulfur site near Mt. Fuji where they sell black eggs. I had the black eggs, along with some black curry bread, as well as black ice cream. Was great. The black egg is a reaction from cooking it in the sulfur-based water. No idea why the bread/ice cream were black though. The black ice cream's just vanilla but seems stickier/mochier than normal ice cream. In a good way.
+
+![Black food](../../images/black_food.jpg)
+
+Then we went to our onsen hotel: 玄 箱根強羅. No English name unfortunately...
+
+Each room has its own onsen, though while warm isn't extremely hot like some onsen. The bottom onsen has a regular onsen, cold plunge, and sauna. Though my nose has been bleeding due to dryness so I'll avoid sauna for the rest of this trip.
+
+Here's the room tour:
+
+<video controls  style="height:720px;">
+<source src="../../images/so_fast_room_tour.mp4" type="video/mp4">
+Your browser does not support the HTML5 video tag.
+</video>
+
+Had dinner in our room. Instead of just a menu, they straight up gave us drawings. Here's the drawings and a couple of the real food for reference:
+
+![Drawing front](../../images/onsen_drawing_front.jpg)
+
+![Drawing back](../../images/onsen_drawing_back.jpg)
+
+Otsukuri + Wanmori:
+
+![Otsukuri and Wanmori course](../../images/otsu_course.jpg)
+
+Konabe + Shizukana:
+
+![Wagyu & Lamb course](../../images/wagyu_and_lamb.jpg)
+
+Kanmi:
+
+![Dessert](../../images/kanmi.jpg)
+
+After dinner, we went downstairs to take some ice cream and milk. There's free drinks 24/7 downstairs that's non-alcoholic, and 8PM to midnight for alcoholic drinks. So we sampled a bunch of soju-like drinks. One potato and one barley. Those were the best. The sake was sour and is OK.
+
+A lot of these booze is difficult to just straight up drink without food since it just reeks of alcohol.
+
+Went back to the room and wrote this up and watched some YouTube while Serena tried to get the hot tub to be hotter by spamming the hot button (there's a cold/hot water button that'll dispense hot/cold water to adjust the temperature of the hot tub, but to no avail).
