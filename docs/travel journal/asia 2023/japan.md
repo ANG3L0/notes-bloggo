@@ -922,4 +922,107 @@ After dinner, we went downstairs to take some ice cream and milk. There's free d
 
 A lot of these booze is difficult to just straight up drink without food since it just reeks of alcohol.
 
+I also learned today that the yukata for the hotels don't have normal pockets. Instead, they have traditional pockets where the area under your wrists is very big. Then, you just put items in your sleeve, like a magician, and it'll just fall into the baggage area that's under your wrist (if your forearm is parallel to the ground). When you put your arms down, the items just become adjacent to your arms. So as long as you don't raise your hands, the items won't fall out. Simply genius.
+
 Went back to the room and wrote this up and watched some YouTube while Serena tried to get the hot tub to be hotter by spamming the hot button (there's a cold/hot water button that'll dispense hot/cold water to adjust the temperature of the hot tub, but to no avail).
+
+## Tokyo
+
+### Dec 21: Shopping
+
+Woke up and went to the common onsen. This dude came out of the sauna and jumped into the cold plunge with all his sweat. I wanted to use it after soaking in the hot bath, but I ended up just dipping my feet in instead because it's kind of gross.
+
+Took some free nitro cold brew from the lobby and went for breakfast in Serena's parents' room. Quick video showing the spread. The covered pot is tofu.
+
+The menu--the picture is too blurry so this is my best interpretation of it.
+
+* Fruit juice
+* Assorted dish
+    * Lotus root dumpling / fried egg
+    * Fish paste with pickled Japanese horseradish
+    * Grilled fish / Amberjack sashimi
+    * Mushroom with seasoned soy sauce
+    * Cubes of pork / steamed wild atlantic salmon
+    * Squid guts pickled in salt
+    * Something else pickled.
+* Salad
+* Cooking stove--Homemade tofu
+* Grilled dish--dried fish
+* Rice--kettle cooked rice
+* Pickles--assorted pickles
+* Soup--Miso soup / littleneck clam
+* Dessert--Yogurt/fruit.
+
+<video controls  style="height:720px;">
+<source src="../../images/kaikseki_room_bfast.mp4" type="video/mp4">
+Your browser does not support the HTML5 video tag.
+</video>
+
+After breakfast, we packed and left. After I took a bunch more free nitro cold brew from the lobby.
+
+Drove to an outlet where we walked around and did shopping for a bit. I only was able to take home a pair of lululemon red shorts. Normally, it'd cost $70 to $80, but here it cost $36. It has zippers for pockets and fleece lining for warmth so you can wear it even in the winter. Serena got a lot more stuff.
+
+I wanted to get some Loro Piana jacket but they didn't have my size. Normal cost: $3300. Here: $2200. But even with $1K+ savings I shouldn't buy something that's too big / too small just to force a "good" deal.
+
+At this lunch at the outlet:
+
+![Outlet lunch](../../images/outlet_lunch.jpg)
+
+We also got matcha / vanilla ice cream after for dessert (not shown).
+
+Then, Serena's dad drove us to Tokyo. From this point onwards on the trip, Serena and I won't live in the same hotel as Serena's parents. And this is also the final leg of the Japan trip, as well as this epic 5.5 week journey. The drive took about ~2 hours so it's impressive that Serena's dad was able to maintain his ability to drive us around everywhere throughout. Especially because I can't help but fall asleep in the car.
+
+After we checked in, Serena & I got matching Adidas at a nearby department store about a 33% discount. Then, met up with Serena's parents for a pasta dinner at the same department store. Their sets were ~2500 yen ($17.57/peson) but included a pasta, a drink of choice, and a large slice of cake of your choice. Here's the spread:
+
+![Pasta + dessert + drink set](../../images/department_store_pasta_dinner.jpg)
+
+After dinner, we all went home.
+
+### Dec 22: Shoes, lots of shoes
+
+This morning, I woke up and went to the hotel gym (first hotel with gym).
+
+It is very small and had limited dumbbells. But I just recovered from straining my back recently anyway so I just did biceps / triceps for a few sets, and then 20 mins of cardio.
+
+After, Serena and I took a taxi to Takeshita and ate McDonald's there. Yep, the classic McGriddle + hash brown + latte combo I've had the other 2 times.
+
+Got some crepes after. One was an assorted fruit crepe and one was a chocolate banana crepe.
+
+![Crepes](../../images/crepes_japanese.jpg)
+
+Done with the crepes, we went to a 7/11 to buy instant noodles. I saw this Japanese woman rush into the aisle and crab the "chili tomato" flavor and so I thought
+
+> If the locals like this one I'll also try that one.
+
+Serena got the curry flavor I got a few days ago.
+
+The instant noodles *can be cooked right at the 7/11.* They have water boilers that dispenses 98C water and provide chopsticks. I ate it and it was pretty good. Very...tom yummy. Pun intended.
+
+![Instant noodles](../../images/instant_noodles_jap.jpg)
+
+Met up with Serena's parents afterwards and went shopping. My haul consisted of:
+
+* A goretex asics for around $60 USD.
+* 3 Uniqlo merino wool shirts. About ($28 each--4K yen).
+* A Jujutsu Kaisen tiny figurine you get at one of those toy dispensing machines for 400 yen. It's random so you don't get to pick. I got Nobara which sucks because she's been dead in the story for so long so it's a pretty irrelevant character.
+
+After some shopping, we took a break for lunch at around 2PM. We had the kind of sushi where it comes in a conveyer belt. But you can also order sushi that you don't see on the belt.
+
+Ate about this much:
+
+![A lot of sushi, because it was cheap](../../images/conveyer_sushi.jpg)
+
+In the middle of shopping, we saw a Jujutsu Kaisen exhibit, so I took some cringy pics in front of very large JJK character posters.
+
+21K steps later, we settled into dinner. We literally walked around and window-shopped/shopped for maybe 6 hours. For dinner, we had a pasta set, similar to yesterday:
+
+* Salad
+* Tomato soup inside a bread
+* Mentaiko pasta
+* Iced tea
+
+![Bread soup](../../images/bread_soup.jpg)
+
+![Dessert set](../../images/dessert_setto.jpg)
+
+Went home after dinner, with a fuller closet.
