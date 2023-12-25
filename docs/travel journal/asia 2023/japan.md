@@ -1026,3 +1026,239 @@ In the middle of shopping, we saw a Jujutsu Kaisen exhibit, so I took some cring
 ![Dessert set](../../images/dessert_setto.jpg)
 
 Went home after dinner, with a fuller closet.
+
+### Dec 23: I proposed
+
+Woke up early and went to the Tsukiji Fish Market to meet up with Serena's aunt and uncle. Went to a place called Unitora Nakadori. A long line, and we waited for about 45 mins to get in. Our reward was tons of uni:
+
+![Lots of uni](../../images/lots_of_uni.jpg)
+
+After that epic uni meal, Serena's aunt/uncle went to line up for the next epic meal, which is an omakase. They went to line up for the 10:30AM session, and told us to walk around Tsukiji. So we did. I got:
+
+* A coffee from a vending machine, but it was too sweet. About 100 yen.
+* Another coffee from a vendor for about 390 yen. It's not that good and pretty expensive for what it was (still way less than the even more expensive garbage in US though).
+* A soba with a ~5 large oysters. About 1200 yen. Pretty good.
+
+![Soba with oysters](../../images/soba_oysters.jpg)
+
+I was afraid to eat too much because I knew Serena's auntie and uncle has something even more awesome planned.
+
+And something awesome it was. They took us to an omakase where each bite is better than the last. And the chef had a funny laugh. He would say stuff like:
+
+> This fish only winter, ha-ha-ha.
+
+<video controls  style="height:720px;">
+<source src="../../images/chef_hahaha.mp4" type="video/mp4">
+Your browser does not support the HTML5 video tag.
+</video>
+
+And it was hilarious to me. I also got the same sake as Serena's uncle, for about 6000 yen a glass. Pretty awesome. Nice and smooth. I don't really like the dry stuff, so this was perfect. Just smooth enough, but not sweet so that it ruins the balance of the fish.
+
+The sake's name is translated to "clean heart."
+
+It was really tasty and I'm not sure what I had but one of the most memorable for me was a tougher white fish that he sliced very thinly, topped with cod liver:
+
+![Cod liver nigiri](../../images/cod_liver_with_fish.jpg)
+
+Here's the menu in case you wanted to know what was served (because I don't).
+
+![Omakase menu](../../images/omakase_menu.jpg)
+
+After, we can order whatever we want for about 15 mins. So we ordered:
+
+* Shirako (cod sperm sac) for 2 rounds. Normally you eat this as is, but he torched it.
+* A round of the hard white fish + liver.
+
+Gouchisousama deshita!
+
+After 2 bouts of epicness, we did another epic meal: at the same franchise (Nakamura Tokichi Byodo-In) as on [Dec 15](#dec-15-i-gave-my-phone-to-a-japanese-grandma). Each location is different though, and in this location instead of only focusing on basic matcha drinks, they had a super dense matcha drink and *hojicha* parfait (roasted green tea instead of regular green tea or matcha).
+
+![Dense matcha and hojicha parfair](../../images/dense_matcha.jpg)
+
+I love hojicha.
+
+After that, we digested by walking around Shibuya a bit. Then, we ran into Serena's parents and had a room to ourselves for a beef-roasting tasting menu. Here's the menu, and a video of how awesomely juicy the meats are. It catches fire really well, and you might notice that there are ducts to suck the smoke out *on the sides of the grill*. This prevents the meat smell from perfuming the room, and consequently, your clothes.
+
+![Beef tasting menu](../../images/beef_tasting.jpg)
+
+<video controls  style="height:720px;">
+<source src="../../images/beef_flame.mp4" type="video/mp4">
+Your browser does not support the HTML5 video tag.
+</video>
+
+After this wonderful dinner, I proposed in one of the most ridiculously epic ways. It's been about 4.5 months in the making and I want to do it justice when I write about it. For now, feel free to ask me about it. Will update this in gory detail later on.
+
+She said yes, by the way.
+
+### Dec 24: I didn't know coffee could be like this
+
+Slept in because the night before we stayed up a bit later than usual.
+
+Went meet up with Serena's aunt/uncle to eat a ton of beef tongue at around 11AM.
+
+On our way there, we had to pass by the now famous Shibuya station. It's popularized recently by Jujutsu Kaisen season 2, where they cover the Shibuya Incident arc (a bunch of cursed spirits massacre civilians). To celebrate this, they put a bunch of decorations up at Shibuya station for JJK. Additionally, I noticed a spot that they took for the anime where Gojo came crashing in.
+
+![JJK decorations at Shibuya Station](../../images/shibuya_decorations.jpg)
+
+![Gojo Shibuya Comparison vs IRL](../../images/gojo_shibuya.jpg)
+
+Though most of the zeitgeist / decorations is based on the *anime, and not the manga*, it ends up being kind of mediocre. Most of the characters are already dead and thus irrelevant for those that follow the manga. So it feels like a lot of the decoration is old news. Still, pretty cool that they decorated the landmark where the story takes place.
+
+The beef tongue came in 3 "classes"--from least to best quality. Think toro, chu-toro, and o-toro, but for beef tongue.
+
+We each got an assortment and they were all good. But the best class of beef tongue was really oily/creamy like wagyu, yet had the bouncy texture of beef tongue. We also got some tongue that's marinated in a semi-sweet sauce, kind of like KBBQ style.
+
+Overall delicious and about 20K yen per person, even after drinks. **(About $35).**
+
+For what this was, it's actually a pretty great deal. Think of a way you can eat beef tongue and/or actual Japanese wagyu quality meat kind of a mouthfeel for $35, let alone platefuls of it.
+
+![Beef tongue spread](../../images/beef_tongue.jpg)
+
+Anyway, went to another department store to look around.
+
+On our way, we went by Shibuya Crossing. This is the famous Japanese crossing in tons of media: Fast & Furious, and more recently Alice In Borderlands (where the main characters and his friends met before everything exploded). I took a video but this is what it looks like:
+
+![Shibuya Crossing](../../images/shibuya_crossing.jpg)
+
+When we arrived to the department store, we noticed they had a Christmas market but Serena was pretty tired so we just walked around the mall a little bit before we gave up and wanted to sit down at Harbs. They were really full so instead we bought 3 slices and had it next to the Christmas market.
+
+![Harbs, to go](../../images/harbs_togo.jpg)
+
+We had:
+
+* Rare cheesecake (tasted sour so I guess some kind of lemon cheesecake)
+* Mille crepe
+* Strawberry tart (middle one, already destroyed by the time we took the picture)
+
+At around 4PM, Serena's aunt and uncle took us to a holy mecca of coffee:
+
+*Koffee Mameya*
+
+>  Mame means *beans*, Ya means *shop*.
+
+So this place is just called coffee bean shop. But they basically have a tasting menu for coffee.
+
+We had a bunch of courses but one of my favorite courses is the below:
+
+The prep is basically a milk brew, which is made like cold brew, but instead of ground beans + water, it's **just ground beans + milk, refrigerated for ~8 hours.**
+
+<video controls  style="height:720px;">
+<source src="../../images/coffee_mameya.mp4" type="video/mp4">
+Your browser does not support the HTML5 video tag.
+</video>
+
+The beans matter a lot though, and they use some ultra-high quality geisha beans for this milk brew.
+
+Next to it is some cocoa vinegar, honey, camomile, peach juice mixture. He mixes it all together and the milk brew curdles.
+
+It should be noted that milk brew in and of itself was a separate course and it was amazing. It's like an ultra-elevated latte. Very creamy/milky, yet had a great tinge of geisha coffee flavor / herbal smell. There's a punchy after taste that's reminescent of sriracha, even.
+
+Anyway, after the milk curdles, he mixes it thoroughly and puts it in a funnel. It's then dripped for about 30 minutes before it's ready. Once it's ready, he uses the curdled paste as topping for a cookie. And the juice is poured on a large ice cube topped with jasmine flower.
+
+The taste has hints of the milk brew we just had, except it instead of just a creamy, sweet coffee with some complex flavors, it's further balanced by slight tartness from the cacao vinegar, and somewhat subtle sweetness from the peach, and the smell is further enhanced not just by the jasmine, but with the camomile infused cocktail.
+
+And here I thought coffee was just either a range of bitter and sour.
+
+And that was only *one* of the courses in the tasting menu.
+
+No longer a coffee pleb, we headed to eat our final dinner in Tokyo, and for this whole trip together.
+
+After, Serena's aunt/uncle took us to an extremely fancy beef place. But taxi was really slow. We had a reservation for 7:15PM and it was 6:40PM, and the driver's GPS read 7 minutes.
+
+20 minutes later at 7:00PM, the GPS read 9 minutes.
+
+While there was heavy traffic, the taxi driver is also at fault here. taxi drivers in Japan are extremely cautious. The right lane (fast lane here) was completely open, but the driver would basically refuse to take a faster path to the destination. Instead, the drivers here are perfectly content to wait for traffic.
+
+Anyway, we got off the Uber at around 7 PM and walked 1 mile to the restaurant.
+
+I really had to pee so went to a convenience store. No avail. Then ran to the next one. There was a bathroom but some girl was about to get in. We were already running late and I really needed to pee. I guess my face had *piss* written all over it so she offered to let me go before her.
+
+This was the first time this has happened to me, so I went. After peeing, I arigato gozaimasu'd her ass and ran out of the store to hopefully make some time up.
+
+We were maybe ~5 minutes late but it was OK. What followed was high-quality meat after high-quality meat. I had no idea what I was eating but it all tasted like the type of wagyu that you don't need to chew, and unlike a lot of fatty wagyu that doesn't have a lot of beef flavor, this type was really fat and had tons of beef flavor.
+
+The waitress was also very anal about which cuts should be dipped into what sauce. This is how you know they care about the product.
+
+This was a multi-course meal, followed by a bunch of a la carte meats. Serena's aunt and uncle did all the ordering and we did a few cheers for the proposal went well the day before. Here's what one of the spreads looked like:
+
+![Beef spread](../../images/spread_final_meal.jpg)
+
+One of the main highlights for me was a sukiyaki beef that is served with a Japanese egg yolk (in Hong Kong, these are like $1+ *per egg*)--only to be topped with black truffle.
+
+We're then told to only eat the beef, which seems like a waste of the sukiyaki/egg yolk sauce + truffle, but this is later served with rice where everything was mixed together.
+
+The rice soaking up all the beef oils and egg umame, alongside with the sweet/sour contrast of the sukiyaki sauce, enhanced by the fragrance of black truffle was a life-changing event.
+
+![Insane rice dish](../../images/insane_yolk_truffle_rice.jpg)
+
+<video controls  style="height:720px;">
+<source src="../../images/beef_truffle_prep.mp4" type="video/mp4">
+Your browser does not support the HTML5 video tag.
+</video>
+
+For dessert, we had shaved ice. I thought it'd be really sweet because it was a brown shaved ice, and thus my thought was chocolate. But it was *hojicha* shaved ice, so it tasted very tea-like and wasn't too sweet.
+
+Also a bunch of red beans at the bottom to balance out the taste.
+
+Serena's aunt asked for some candles for celebration. Instead of candles though, they gave us a *free* shaved ice with *sparklers*--like at a freaking night club. The Hong Kong people next to us kept muttering:
+
+> Why do they get sparklers and not us?!
+
+<video controls  style="height:720px;">
+<source src="../../images/dessert_with_sparklers.mp4" type="video/mp4">
+Your browser does not support the HTML5 video tag.
+</video>
+
+After dinner, we were to go to Serena's aunt/uncle's hotel to have a conference call with her family about the proposal, how it went down, etc.
+
+I was helping Serena do her seat belt but accidentally got elbowed hard in my right eyeball. Felt like a sharp, stabbing pain in my eyeball and it gave me a headache in the back of my right eyeball.
+
+Though no visual impairments though, so I think I'll be fine. Will wait a few days and see.
+
+Went to the hotel, and everyone said I was tired for some reason. Maybe it was a lot of food, or some alcohol + food that caused me to look tired. Or maybe getting elbowed hard in the eyeball also had something to do with it. Or a combo of all of the above.
+
+Anyway, we stayed for about 30 mins and went home so we can pack.
+
+We packed our stuff and went to sleep.
+
+### Dec 25, two times: American Express Refugee Camp
+
+Christmas is experienced twice this year due to time difference. Once in Japan as we depart it. And once in California as we arrived at around 10AM.
+
+Ate a final lunch with Serena's aunt/uncle this day. They wanted to line up for sushi early in the morning but Serena & I were too tired after 5.5 weeks and just opted for a random place near Tokyo Station.
+
+Our plan was to meet at around 11:30A and do a bag drop at Tokyo Station, eat lunch, then walk around before boarding a train to Narita. But the taxis here suck.
+
+Taxis here drive really slow for some reason--think old grandma with bad vision slow, but then twice as slow as that. Open lanes are ignored. Turns are very slow, like a student driver.
+
+And taxi drivers here, unlike in Hong Kong or Vietnam don't really know where anything is. Even when we ask to go to Tokyo Station, or Shibuya Station, they look confused as hell as it's the first time someone's mentioned that request.
+
+They try to make the interior of the cab very luxe, like a Toyota Century and it looks really nice and all, but I'd prefer a fast taxi that looks dirty than a plush taxi that's slow as all hell.
+
+Anyway, the Taxi arrived after a 15 min delay and he had to make a U-turn. Instead of making a U-turn, he spent 3 extra minutes going around a few blocks and making 3 extra turns before picking us up.
+
+*We literally saw him. And he just ran off to do a bunch of extra turns.* The U-turn is legal as other taxis and cars were doing U-turns where the hotel was. And in fact, a previous taxi did the same U-turn to drop us off a couple nights before.
+
+TLDR: Plan was to arrive at 11:30A. We arrived at around 12.
+
+Didn't really have time to drop our bags at the station since the line is really long, so we just found a random restaurant that would give us a 6-person table and leave our luggage there while we eat. The good news is, it was really good. The bad news is, all other items (presumably better) were all sold out. The egg was really smooth and chicken very moist. The soba was also delicious, though the lack of wasabi to put in the soba made it mid. Though all the other parts of the meal were kind of spectacular. I guess for the most part, anything you randomly pick in Japan will be pretty good.
+
+![Last meal in Japan](../../images/last_lunch.jpg)
+
+After taking the train, Serena's Star Alliance set in. At the counter, her ticket was printed Silver Status, while her Gold Status expires 2025. Gold status = you get priority luggage tags for faster pickup.
+
+The counter lady looked at it and could simply not comprehend that the system was wrong. So she just stood there **for about 5 minutes looking confused, before asking her manager what to do.** Her manager simply prompted to add the priority luggage tag to our bags.
+
+We went to the ANA lounge without similar issues; Serena just showed her account's Gold Status and we were let in. The regular food was actually kind of bad, so I had none of it. But there's QR on the table where you can order noodles. So I ate a ramen noodle, and then a bowl of udon.
+
+**Ironically, this is the first time I had proper ramen in Japan after 2 weeks.** (I had tsukemen earlier as the only ramen-like meal in Japan, but nothing with a regular broth). Udon not pictured.
+
+![Ana lounge ramen](../../images/ana_ramen.jpg)
+
+After a 10 hour plane ride, it was the next day in Japan but still Christmas in the US. Upon getting our luggage and checking in again, we walked ~20 minutes from domestic terminal to Tom Bradley terminal to get to the Amex lounge. Only to find a gigantic ass line, like a refugee camp.
+
+We found a seat, but the food variety was lacking and not appetizing. And it's crowded. There's also no cocktail menu at the bar. Probably the worst centurion lounge I've been to and one of the worst of any I've been to. 1/5. Not worth taking a picture.
+
+There's wifi for me to type this up though.
+
+**After a whole month of almost daily journaling, it's bittersweet to end this series here.** Since the rest of the day will just be time spent with family in California, it's no longer an `Asia 2023` trip. After 24k+ words, not counting the proposal series that I'll type up, I covered a lot. I'll try to condense the lessons I learned [here](../lessons), and as I reflect upon things, I'll add more.

@@ -1,3 +1,4 @@
 
 - If my aunt's facing leukemia, death, and an extremely physically painful existence can find a way of being happy by simply having her nephew visit, I have no excuse of not finding a way to be happy in almost any situation. **Don't worry, be happy.**
 - Serena's masseuse doesn't do marketing. Purely word of mouth. She has clients that she massages for 8 hours at a time (high-ticket). The best kind of businesses are ones where quality is so good that people don't mind paying a lot for (in both time and finance).
+- Japan's culture makes the people be very methodical. This achieves extraordinary results, like amazing food everywhere you go. This also makes for very slow taxis and slow problem-solving / adaptability that are infinitely frustrating. For amazing long-term results, the slow/methodical way is the way to go (though you should aim to go as fast as possible). When speed is needed, you should refrain from doing things this way.
