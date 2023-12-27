@@ -278,7 +278,7 @@ Anyway, at the locker room we found out that they don't rent out teamLabs often 
 
 That's it.
 
-So it isn't like a weekly or daily thing that they do private events. So my original concerns during the ideation phase were all valid.
+So it isn't like a weekly or daily thing that they do private events. Thus, my original concerns during the ideation phase were all valid.
 
 For privacy reasons, I'll keep photos on my phone only and not post it here.
 
