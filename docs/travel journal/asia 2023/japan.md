@@ -1086,7 +1086,7 @@ After that, we digested by walking around Shibuya a bit. Then, we ran into Seren
 Your browser does not support the HTML5 video tag.
 </video>
 
-After this wonderful dinner, I proposed in one of the most ridiculously epic ways. It's been about 4.5 months in the making and I want to do it justice when I write about it. For now, feel free to ask me about it. Will update this in gory detail later on.
+After this wonderful dinner, I proposed in one of the most ridiculously epic ways. It's been about 4.5 months in the making and I want to do it justice when I write about it. So here's a section [dedicated to that](../the_proposal).
 
 She said yes, by the way.
 
@@ -1261,4 +1261,4 @@ We found a seat, but the food variety was lacking and not appetizing. And it's c
 
 There's wifi for me to type this up though.
 
-**After a whole month of almost daily journaling, it's bittersweet to end this series here.** Since the rest of the day will just be time spent with family in California, it's no longer an `Asia 2023` trip. After 24k+ words, not counting the proposal series that I'll type up, I covered a lot. I'll try to condense the lessons I learned [here](../lessons), and as I reflect upon things, I'll add more.
+**After a whole month of almost daily journaling, it's bittersweet to end this series here.** Since the rest of the day will just be time spent with family in California, it's no longer an `Asia 2023` trip. After 24k+ words, not counting the proposal series that I'll type up, I covered a lot. I'll try to condense the lessons I learned [here](../lessons), and as I reflect upon things, I'll add more.p
