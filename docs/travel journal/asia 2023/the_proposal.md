@@ -15,13 +15,11 @@ I also wanted to have it look good but blundered pretty hard.
 
 ### Complete surprise
 
-Many of Serena's friends do proposals and only 1 was a true surprise. The rest were semi-surprises. For example, someone saying something like:
+Many of Serena and my friends do proposals and only a rare few are true surprises. The rest were semi-surprises or too predictable.
 
-> You need to look really nice today and show up at this spot at 2PM exactly
+Not me.
 
-Is a surprise technically because you're not revealing that you're proposing, but it is also not a true surprise since anyone with a brain knows that if a proposal's on the table, you're probably proposing there.
-
-This is the *main* challenge.
+So completely surprising Serena is the *main* challenge.
 
 And it's a challenge because:
 
@@ -64,13 +62,9 @@ Got the ring in February of 2023.
 
 Started thinking about proposal around April of 2023, around the time I was planning Serena's birthday trip to Disney World.
 
-For a few months, I was very stuck. Serena's friends had all proposed in the above ways:
+For a few months, I was very stuck. Our friends had proposed in the usual ways (just think of various ways to propose, and those are the ways that have been executed). 
 
-* Restaurant proposal
-* Photoshoot proposal in Turkey (though this was a true surprise)
-* Photoshoot proposal in Hong Kong (semi-surprise)
-
-And I was stuck thinking in these lens for months. But no idea was satisfactory.
+And so I was stuck thinking in this lens for months. The lens that references other people's proposals.
 
 I asked ChatGPT for help but it didn't come up with anything that good. Creativity's not its strong suit. I want to post its answers here but GPT playground (which was what I used) deletes all history beyond 30 days so I'm unable to retrieve it.
 
