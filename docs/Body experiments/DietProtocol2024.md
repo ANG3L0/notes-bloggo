@@ -4,7 +4,7 @@ comments: true
 
 
 
-# Cut 1H 2024
+# Cut H1 2024
 
 I got fat during [this trip](../../travel journal/asia 2023/itinerary). How fat?
 
@@ -75,7 +75,7 @@ So I can do a yogurt + cereal + protein shake for 1100 calories, and then back f
 
 Or I can do a half portion of yogurt + Cereal + beef + 1 scoop of protein shake and hit my macros / calories.
 
-Or I can do a beef + yogurt + 1 scoop protein shake to hit my protein, and eat some snakcs for an extra 150 calories.
+Or I can do a beef + yogurt + 1 scoop protein shake to hit my protein, and eat some snacks for an extra 150 calories.
 
 Or I can just do a half portion cereal, plus beef, plus 2 protein shakes (4 scoops) and it'll also be kind of perfect.
 
