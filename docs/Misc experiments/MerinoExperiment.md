@@ -4,7 +4,7 @@ comments: true
 
 
 
-# Can I only pack 2 shirts?
+# Merino Experiment: Can I only pack 2 shirts?
 
 I really hate packing clothes for travel. It's bulky and inconvenient.
 
@@ -14,7 +14,9 @@ Didn't think there was any solution to this since packing only 2 shirts for vaca
 
 But I recently came upon some YouTube videos touting praises for merino wool, where you basically can wear it indefinitely as it's antimicrobial. And it won't smell.
 
-This post investigates merino wool, and minimalist packing for vacation in general.
+This post investigates merino wool.
+
+If all goes well, I should ideally only pack 3 tops: 2 shorts (1 to dry if I get sweat on it), and 1 long sleeve (assumption is I won't sweat in long sleeve since it'll be cold).
 
 ## Merino Wool
 

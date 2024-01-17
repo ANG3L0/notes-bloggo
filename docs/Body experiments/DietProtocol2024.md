@@ -47,9 +47,11 @@ A few recipes I'll play with:
 - 2 cans of chicken of the sea.
 - **96g protein.**
 - **440 calories**
-- The recipe says add mustard to taste, but I don't have mustard so will add sriracha instead. Will buy mustard later and play around with that.
+- The recipe says add mustard to taste, but I don't have mustard so will add sriracha instead. Will buy mustard later and play around with that. Edit: Mustard's fine too. I like sriracha better but there's a shortage so mustard's cheaper (also 0 calories).
 
 **Chococlate Protein Cereal**
+
+![Protein cereal](../images/protein_cereal.jpg)
 
 * 2 cups premier protein cereal
 * 1/3rd of a premiere protein shake
@@ -145,3 +147,5 @@ Daily reports are kind of a waste of time. Some say you should take the average 
 
 * Jan 9: 196lb, 24.8% bf.
 * Jan 12: 191.2lb, 23.7% bf, raw.
+* Jan 16: 190lb, 23.4% bf, raw.
+    * Note: Only worked out 3x past week. Won't hurt my cut but will be dangerous for muscle loss. Power is fine, 5x10 (endurance)-type sets are a lot weaker.
