@@ -149,3 +149,5 @@ Daily reports are kind of a waste of time. Some say you should take the average 
 * Jan 12: 191.2lb, 23.7% bf, raw.
 * Jan 16: 190lb, 23.4% bf, raw.
     * Note: Only worked out 3x past week. Won't hurt my cut but will be dangerous for muscle loss. Power is fine, 5x10 (endurance)-type sets are a lot weaker.
+* Jan 20: 189lb, 23.2% bf, raw.
+    * Weight loss will start to taper. This is when the real diet is starting.
