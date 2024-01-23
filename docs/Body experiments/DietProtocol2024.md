@@ -81,7 +81,7 @@ Weee sells [these hot pot lamb packages](https://www.sayweee.com/en/product/Slic
 
 **Boiled shrimp**
 
-![Shrimp](../boiled_shrimp.jpg)
+![Shrimp](../images/boiled_shrimp.jpg)
 
 I buy frozen shrimp that I boil and eat. 1lb *frozen* (with shell and all), translates to 74g protein, 300g calories. About 1/3rd of the weight is shell and water weight.
 
