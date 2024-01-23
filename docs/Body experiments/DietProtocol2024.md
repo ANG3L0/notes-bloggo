@@ -88,6 +88,8 @@ I buy frozen shrimp that I boil and eat. 1lb *frozen* (with shell and all), tran
 * Boil it.
 * Eat it.
 
+In the PDF above, he just says buy frozen shrimp, already shelled, and eat it with cocktail sauce. That, for me, is fucking disgusting. If you like it, by all means do it. But I like eating hot shrimp (unless it's sashimi-grade ebi). **This is just a demonstration that you don't have to follow any recipe to a T--adjust to your liking, as long as the calories/macro fits.**
+
 He also has kind of "bro" recipes which consist of 1L of egg whites which is too much for me. I also skipped more expensive options like beef jerky and expensive protein shakes.
 
 As you can see, I can hit 200g protein pretty easily without hitting 1.5k calories. Especially since I have whey iso powder that'll let me do ~40 grams of protein at around 250 calories. Some examples:
@@ -124,7 +126,9 @@ Exercise for strictly losing weight isn't that important--it's mostly diet. But 
 This is January 2024 as I'm writing this but I'll go to:
 
 * Thailand for about 1.5 weeks in Feburary
-* California for a couple weeks in March
+* California for a a few weeks in March
+* Dubai for about 1.5 weeks in April.
+* Vienna in August.
 
 These will present hurdles and halt any weight loss. On vacation, I'll try to exercise but I probably won't adhere to any sort of diet since I want it to be fun.
 
