@@ -65,7 +65,7 @@ Chose this because the cereal and the shakes are relatively cheap. Also, at 1/3r
 
 * Cauliflower rice
 * 1 lb ground beef (90/10)
-* Sriracha to taste.
+* Sriracha to taste. Or garlic/onion to taste.
 * **88g protein**
 * **800 calories**
 
@@ -78,6 +78,15 @@ Weee sells [these hot pot lamb packages](https://www.sayweee.com/en/product/Slic
 * 1 lb lamb, boiled.
 * Veggie.
 * Sriracha, hot chili flakes to taste.
+
+**Boiled shrimp**
+
+![Shrimp](../boiled_shrimp.jpg)
+
+I buy frozen shrimp that I boil and eat. 1lb *frozen* (with shell and all), translates to 74g protein, 300g calories. About 1/3rd of the weight is shell and water weight.
+
+* Boil it.
+* Eat it.
 
 He also has kind of "bro" recipes which consist of 1L of egg whites which is too much for me. I also skipped more expensive options like beef jerky and expensive protein shakes.
 
