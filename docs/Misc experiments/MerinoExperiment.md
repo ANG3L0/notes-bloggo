@@ -36,3 +36,13 @@ This is a good stress test since I generally won't be sweating if I am deciding 
 
 If after a month, it has no smell, then I'm good to buy some short-sleeve shirts from Unbound Merino (otherwise it's too hot to wear when it's hot).
 
+## Log
+
+### 2-week update
+
+After about 2 weeks of sweating into this merino wool shirt, it does not stink. That is good news.
+
+The bad news is that merino wool is known for anti-microbial properties, not comfort. So there is some chafing. Not sure if more expensive, non-uniqlo brands can offer a smoother, less-rough texture. If I travel long-term with merino wool at this point, I feel like I'd have some backup shirts if I'm in an environment where sweating's a concern.
+
+The other bad news is hanging merino wool to dry = stretches the wool, which makes it more loose. This is my mistake and the past few days doing lie-flat drying still makes it dry completely, despite it being colder indoors. The looseness can contribute to chafing as well, so lie-flat drying on a tighter merino may prevent chafing.
+
