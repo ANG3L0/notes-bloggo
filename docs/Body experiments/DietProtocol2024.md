@@ -166,3 +166,5 @@ Daily reports are kind of a waste of time. Some say you should take the average 
     * Weight loss will start to taper. This is when the real diet is starting.
 * Jan 23: 188lb, 23% bf, raw.
     * Lifting roughly back to 5X/week now. Not sure why I always land on whole numbers for my poundage.
+* Jan 25: 187.4lb, 22.8% bf, raw.
+    * Cardio feeling a little harder. Not sure if it's because I'm weaker, or if weather's hotter.
