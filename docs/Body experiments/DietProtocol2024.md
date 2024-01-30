@@ -172,3 +172,6 @@ Daily reports are kind of a waste of time. Some say you should take the average 
 * Jan 28: 185.6lb, 22.4% bf, raw.
     * Cardio felt better today. Could be fluctuation, but this week could be too much weight loss. Will monitor over next couple of weeks and if losing weight too quickly, do 1600 calories instead of 1500.
     * Treadmill: 31:00 -> 32:00
+* **Jan 30: 185.8, 22.5% bf, raw.**
+    * The novice will see that they've gained 0.2 lb in 2 days and freak that the diet's not working. For me, it just seems like Jan 28 was an outlier. And losing 2.2lb in a week is roughly on track. Also with my diet, I'm not having as many bowel movements weight can fluctuate.
+    * Like day-trading, looking at your weight every single day is not useful because it's mostly nice. Look at the longer-term trends. Luckily unlike the stock market where you need to look at 5-y to 30-y trends, there's a lot less noise in a diet and you can just take a 1-3 week window and make adjustments.3
