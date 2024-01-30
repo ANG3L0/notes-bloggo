@@ -63,13 +63,15 @@ Chose this because the cereal and the shakes are relatively cheap. Also, at 1/3r
 
 **Cauliflower ground beef**
 
+![Ground beef](../images/ground_beef.jpg)
+
 * Cauliflower rice
 * 1 lb ground beef (90/10)
 * Sriracha to taste. Or garlic/onion to taste.
 * **88g protein**
 * **800 calories**
 
-Instead of cauliflower, can feel free to substitute it with any leafy greens/0-calorie veggie (non-starch). Don't use additional oil when stir frying; use the oil from the beef, so toss in the beef a little earlier than you normally would to render out fat.
+Instead of cauliflower, can feel free to substitute it with any leafy greens/0-calorie veggie (non-starch). Above's broco for example. Don't use additional oil when stir frying; use the oil from the beef, so toss in the beef a little earlier than you normally would to render out fat.
 
 **Hot pot lamb**
 
@@ -174,4 +176,4 @@ Daily reports are kind of a waste of time. Some say you should take the average 
     * Treadmill: 31:00 -> 32:00
 * **Jan 30: 185.8, 22.5% bf, raw.**
     * The novice will see that they've gained 0.2 lb in 2 days and freak that the diet's not working. For me, it just seems like Jan 28 was an outlier. And losing 2.2lb in a week is roughly on track. Also with my diet, I'm not having as many bowel movements weight can fluctuate.
-    * Like day-trading, looking at your weight every single day is not useful because it's mostly nice. Look at the longer-term trends. Luckily unlike the stock market where you need to look at 5-y to 30-y trends, there's a lot less noise in a diet and you can just take a 1-3 week window and make adjustments.3
+    * Like day-trading, looking at your weight every single day is not useful because it's mostly nice. Look at the longer-term trends. Luckily unlike the stock market where you need to look at 5-y to 30-y trends, there's a lot less noise in a diet and you can just take a 1-3 week window and make adjustments.
