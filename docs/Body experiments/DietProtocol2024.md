@@ -177,3 +177,11 @@ Daily reports are kind of a waste of time. Some say you should take the average 
 * **Jan 30: 185.8, 22.5% bf, raw.**
     * The novice will see that they've gained 0.2 lb in 2 days and freak that the diet's not working. For me, it just seems like Jan 28 was an outlier. And losing 2.2lb in a week is roughly on track. Also with my diet, I'm not having as many bowel movements weight can fluctuate.
     * Like day-trading, looking at your weight every single day is not useful because it's mostly nice. Look at the longer-term trends. Luckily unlike the stock market where you need to look at 5-y to 30-y trends, there's a lot less noise in a diet and you can just take a 1-3 week window and make adjustments.
+* Feb 2: 186lb, 22.5% bf, raw.
+    * Flat trend could be due to many variables: Water retention, reduced BMR, accidental caloric intake, etc.
+        * Reduced BMR can be caused by too much exhertion. Will slow down from 3.1 mph peak on inclined treadmill to 2.8 mph. Will also lengthen it from 32:00->33:00 tomorrow.
+        * Accidental caloric intake: If sauces and stuff proves to be too many calories, I'll reduce my calorie count by 200. But caloric reduction is a last resort. Will see how the Feb 6 weigh-in looks.
+        * Water retention: Water isn't fat so I don't care much. But too many carbs can cause water retention (which is fine), and glucose spikes (which isn't that great for health). Will do a bit more fiber prior to carb-y meals. Main thing that changed past few days is udon/ice cream for backfilling calories, which may be too many carbs. So going back to dumplings is a way to eliminate some variance.
+* **Feb 6: 184 lb, 22% bf, raw.**
+    * Gonna do 1100-1300 cal/day to prep for going to Thailand next week, where I'll be eating more.
+    * Losing 1.8lb is about right (1% of bw per week).
