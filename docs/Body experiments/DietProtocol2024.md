@@ -185,3 +185,5 @@ Daily reports are kind of a waste of time. Some say you should take the average 
 * **Feb 6: 184 lb, 22% bf, raw.**
     * Gonna do 1100-1300 cal/day to prep for going to Thailand next week, where I'll be eating more.
     * Losing 1.8lb is about right (1% of bw per week).
+
+* Feb 11: 182 lb, 21.6% bf, raw
