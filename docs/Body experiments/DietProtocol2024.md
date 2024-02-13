@@ -187,3 +187,5 @@ Daily reports are kind of a waste of time. Some say you should take the average 
     * Losing 1.8lb is about right (1% of bw per week).
 
 * Feb 11: 182 lb, 21.6% bf, raw
+* **Feb 13: 181.8, 21.6% bf, raw**
+    * Probably not gonna be this low in a while since I am going to Thailand!
