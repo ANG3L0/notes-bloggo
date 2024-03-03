@@ -189,6 +189,7 @@ Daily reports are kind of a waste of time. Some say you should take the average 
 * Feb 11: 182 lb, 21.6% bf, raw
 * **Feb 13: 181.8 lb, 21.6% bf, raw**
     * Probably not gonna be this low in a while since I am going to Thailand!
-* **Feb 27: 190.4 lb, 23.5%.**
+* **Feb 27: 190.4 lb, 23.5% bf.**
     * Weighed right after flight / got home. Probably mostly water weight. Will take a few days break from lifting while jetlag is reset. Cardio remains the same.
+    * Did lift most days in Thailand.
     * Will also substitute canned tuna to canned salmon since each canned tuna is about 1 week's worth of safe mercury consumption according to FDA limits. So each day on cut where I eat tuna, I'm eating about 2 week's worth of mercury.

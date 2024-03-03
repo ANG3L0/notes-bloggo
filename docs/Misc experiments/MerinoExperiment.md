@@ -46,3 +46,40 @@ The bad news is that merino wool is known for anti-microbial properties, not com
 
 The other bad news is hanging merino wool to dry = stretches the wool, which makes it more loose. This is my mistake and the past few days doing lie-flat drying still makes it dry completely, despite it being colder indoors. The looseness can contribute to chafing as well, so lie-flat drying on a tighter merino may prevent chafing.
 
+## 1-month update
+
+It also doesn't smell after 4 weeks of sweating into my merino wool.
+
+Ready for next phase.
+
+## The Thailand Test
+
+Went to Thailand. I bought a t-shirt from Unbound Merino to test. Objective is to "test-drive" it and see if actually traveling with it is worth the hype.
+
+Reason I didn't use existing Merino long-sleeves is because I'm not a psycho. Thailand is high 30s (Celsius), or about 95F+ with humidity most days.
+
+I know it won't smell, but are there other factors that I should consider that I'm not thinking about that'll break this hack?
+
+After spending 2 weeks there, I alternated between Merino and regular shirts. Unbound Merino is a bit more combed than Uniqlo's and so is more comfortable to be honest. Guess there's a reason why they're so goddamn expensive.
+
+And for the record, because I wasn't doing rigorous exercise in my Merino shirt, I didn't chafe (and the material is softer than Uniqlo anyway--though hard to know if the material will chafe after many washes).
+
+But after 2 weeks here are the pros and cons of Merino Wool:
+
+## Pros/Cons Roundup Of Using Merino Wool
+
+### Pros
+
+* Sweat dries very fast, like any drifit.
+* You can pack very little and go very far. You can use all your empty luggage space to buy more souvenirs, or simply have fewer luggages to haul around.
+* Even in hot climates, surprisingly comfortable if short-sleeve. Not suffocating at all, which is what I'd have speculated.
+* Antibacterial so you won't have to worry about skin rashes due to bacteria growing from your not washing it.
+
+## Cons
+
+* You won't smell from your sweat, but you will smell if you eat any spices, or near any charcoal or grilling.
+* You won't wash it much due to the more fragile nature of Merino Wool, so splashing sauces / food is a real concern, especially because it is so expensive.
+
+Basically you'll end up non-bacterial and clean, but you'll smell weird (though not stink particularly) and have stains all over, if you use Merino Wool for long-term travel and don't wash it. And if you do wash it, Merino Wool isn't worth it.
+
+So in theory, Merino is great. In practice, it's still OK if you're OK looking dirty and smelling weird, for the upside of not having to pack as much clothes for travel.
