@@ -83,3 +83,11 @@ But after 2 weeks here are the pros and cons of Merino Wool:
 Basically you'll end up non-bacterial and clean, but you'll smell weird (though not stink particularly) and have stains all over, if you use Merino Wool for long-term travel and don't wash it. And if you do wash it, Merino Wool isn't worth it.
 
 So in theory, Merino is great. In practice, it's still OK if you're OK looking dirty and smelling weird, for the upside of not having to pack as much clothes for travel.
+
+## TLDR
+
+Works if you're not traveling with your significant other.
+
+Also works if you're single and not trying to get laid.
+
+Doesn't work as well otherwise.
