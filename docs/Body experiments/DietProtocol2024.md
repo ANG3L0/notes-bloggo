@@ -196,4 +196,4 @@ Daily reports are kind of a waste of time. Some say you should take the average 
 * **Mar 4: 182.4 lb, 21.7% bf.**
     * Not raw measurement. Not much to say, other than let's continue the program.
 * Mar 6: 178.4, 20.8%, raw.
-    * Wanted to get a raw measurement. Downspike probably followed by a mild upspike. So without weighing myself, I expect to go back up to ~180lb some time this week and probably land ~178-179 next Monday.
+    * Wanted to get a raw measurement. Downspike probably followed by a mild upspike. So without weighing myself, I expect to go back up to ~180lb some time this week and probably land ~178-179 next Monday. Let's see how good/bad my predictions are.
