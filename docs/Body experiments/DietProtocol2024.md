@@ -195,5 +195,8 @@ Daily reports are kind of a waste of time. Some say you should take the average 
     * Will also substitute canned tuna to canned salmon since each canned tuna is about 1 week's worth of safe mercury consumption according to FDA limits. So each day on cut where I eat tuna, I'm eating about 2 week's worth of mercury.
 * **Mar 4: 182.4 lb, 21.7% bf.**
     * Not raw measurement. Not much to say, other than let's continue the program.
-* Mar 6: 178.4, 20.8%, raw.
+* Mar 6: 178.4 lb, 20.8% bf, raw.
     * Wanted to get a raw measurement. Downspike probably followed by a mild upspike. So without weighing myself, I expect to go back up to ~180lb some time this week and probably land ~178-179 next Monday. Let's see how good/bad my predictions are.
+* Mar 9: 180.2 lb, 21.2% bf
+* **Mar 11: 179lb, 20.9% bf**
+    * Not raw measurement. But, seems like my prediction was bueno.
