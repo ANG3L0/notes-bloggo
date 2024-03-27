@@ -200,3 +200,8 @@ Daily reports are kind of a waste of time. Some say you should take the average 
 * Mar 9: 180.2 lb, 21.2% bf
 * **Mar 11: 179lb, 20.9% bf**
     * Not raw measurement. But, seems like my prediction was bueno.
+* Mar 15: 177.4lb, 20.6%
+* Mar 20: 180.4lb, 21.3%
+* Mar 22: 178.2lb, 20.8%
+* **Mar 26: 176.2lb, 20.3%, raw**
+    * Some fluctuations. Relatives in town and ate many cheat meals, but trend is OK still.
