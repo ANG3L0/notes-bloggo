@@ -205,3 +205,4 @@ Daily reports are kind of a waste of time. Some say you should take the average 
 * Mar 22: 178.2lb, 20.8%
 * **Mar 26: 176.2lb, 20.3%, raw**
     * Some fluctuations. Relatives in town and ate many cheat meals, but trend is OK still.
+    * Traveling for a bit, so it is hard to weigh myself accurately the next month or so.
