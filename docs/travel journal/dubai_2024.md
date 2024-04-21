@@ -54,6 +54,8 @@ The bad thing is there's almost always people waiting to go to the bathroom beca
 
 ![Emirates plane lounge](../images/emirates_plane_lounge.jpg)
 
+![Emirates Lounges Seating](../images/emirates_lounge_2.jpg)
+
 ## The Great Dubai Flood
 
 Met up with Serena in Terminal 1 of DXB which is a clusterfuck compared to T3 (which is where Emirates Airline's based). After a long wait to get an Uber, it started raining. Didn't think much of it.
