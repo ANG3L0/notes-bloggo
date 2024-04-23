@@ -98,7 +98,11 @@ Other differentiators:
 * 50% off drinks, happy hour (about $10 for a cocktail)
 * Birthday cake with balloons for Serena in-room.
 * During the Sabering, they also surprised us with another cake.
+* Toilet is soft-close
+* Impeccable service
+* Insane brunch buffet, with tons of pastries and fresh protein from juicy roasted chicken to steak.
 * Private beach.
+* **Only hotel that timed evening service properly (i.e. they know when we eat dinner, and just come up to clean during that time)**
 * Common area has Arabic coffee that someone pours for you, and sweets.
 * Excellent service all around.
 
@@ -112,6 +116,8 @@ Since we had $100 Amex dining credit, we used it at an Italian restaurant. We we
 
 ![St Regis Dinner](../images/regis_dinner.jpg)
 
+5/5 stars.
+
 Next day we went to the 3rd biggest mosque in the world / largest in UAE. Not as good as the one we went to in Casablanca, because they roped off most of the sections.
 
 But it's free, so.
@@ -123,3 +129,80 @@ As I write this whole post, I am in Conrad. Also very nice in its own way. St. R
 Great view (it's only 5 mins away from St. Regis), and they surprised us with birthday cake + wine which I am holding in the picture below.
 
 ![St Regis Dinner](../images/conrad_view.jpg)
+
+Differentiators:
+
+* Killer views, like St. Regis
+* Elevators are exposed so as you go up to the 31st floors, it's like your ascending/descending from a helicopter.
+
+The toilet cover is not soft close, and the breakfast was OK--it was super busy and crowded.
+
+Checkout was very slow. 15 minutes and there was only 2 people in front of us. There was 4 staff and only 1 did anything, and took their sweet time chatting people up even though the line was getting longer and longer.
+
+Upon checkout, booked a 3-hour ride to go to a famous [Ritz Carlton in the desert](https://www.ritzcarlton.com/en/hotels/rktrw-the-ritz-carlton-ras-al-khaimah-al-wadi-desert/overview/?nst=paid&cid=PAI_GLB00050K5_GLE000C53T_GLF000QGQD&ppc=ppc&pId=corpimedia&gad_source=1&gclid=CjwKCAjwuJ2xBhA3EiwAMVjkVGSC9kS547900bwDu72nUkgVZ_SXWy8UC_vKNWBYs0X-AnIH3Y_XLhoC3NoQAvD_BwE&gclsrc=aw.ds), where celebrities and royalty go.
+
+3/5 stars.
+
+### Ritz (April 22)
+
+This Ritz Carlton was in the middle of the desert. It was very nice, and the room was huge, and we had a private pool. Tons of activities to do. We booked a package that includes:
+
+* 1 activity
+* Dinner
+* Breakfast
+
+We wanted to do the animal feeding activity but last minute, they said it'd cost 50 AED per person, despite the site implying heavily that all activites are inclulded in the $800+/night package.
+
+So, we opted to ride horses instead the next morning.
+
+But on April 22, we:
+
+* Checked in
+* Swam in our private pool
+* Walked around premises and saw giant tortoises eating fresh salad.
+* Had a buggy drive us around to take a look at the onyx on the property.
+* Attended a falcon show.
+* Ate a delicious steak dinner.
+
+<video controls  style="height:720px;">
+  <source src="../images/ritz_tortoise.mp4" type="video/mp4">
+  Your browser does not support the HTML5 video tag.
+</video>
+
+<video controls  style="height:720px;">
+  <source src="../images/ritz_falcon.mp4" type="video/mp4">
+  Your browser does not support the HTML5 video tag.
+</video>
+
+The next morning, we went to ride horses. We did it at 7AM and someone picked us up from a buggy at 6:45AM. This was great as instead of afternoon 40C+ heat, it was quite cool in the morning. This allowed the horse handlers to give us more time than normal, and let us feed the horses as well as take our time with nature. We also saw royalty doing equestrian training.
+
+![Riding a horse](../images/ritz_horse.jpg)
+
+Main differentiators:
+
+* Lots of nature-y things to do
+* Extremely large suite
+* Private pool
+* Mostly great staff
+* Yummy steakhouse
+* Diptique amenities
+
+Bad:
+
+* Staff is confused. Some would say booking a taxi takes credit card, but last minute told us that we needed cash.
+* Bad at email communication. We wanted to clarify some things prior to our booking, and never got a response.
+* They nickel-and-dime everything which is annoying considering how expensive the package was. For example, they only told us that the animal feeding costs extra money at the very last minute. Only 100AED which is not a lot, but it feels really gross from the customer's POV. Why not just charge us $850 for example, instead of $820 and then nickel and diming us?
+    * And, for the steak dinner, while included, they charged us for water. On top of that, the included dinner is basically an appetizer + main + dessert. Some of the menu items you had to pay extra to choose--fair enough. Except all of the steak options except 1 (at a steakhouse) requires extra money, and about half the other items require extra money. So to say that 'dinner is included' in the original marketing is, while true, somewhat deceptive. Again, $7 water? Why not just charge us $827/night and skip the annoying nickel-and-diming? Seems very odd to do for a high-ticket product.
+* No awning on top of private pool, so birds keep pooping on the pool.
+* Many flies.
+* Many handles are dusty / hotel room not very clean.
+* Timed evening service poorly.
+* Toilet not soft close.
+
+Overall, good experience but a lot of small details make the high-ticket pricing not worth it, and gross in some scenarios. For a 5-star experience, I expect everything to be smooth, but it wasn't. Glad to have experienced it, but not worth it in my opinion.
+
+Rating: 2/5 stars.
+
+### Haptoor Luxury Palace (April 23)
+
+This is the last hotel.
