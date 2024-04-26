@@ -250,6 +250,7 @@ Anyway, here are their differentiators:
 * Live music from time to time (harp and piano) at lobby.
 * Some complimentary amenities, like candied dates (ranging from dark to white chocolate to rose-flavored)
 * Excellent service; they also have butler service like St. Regis
+* **Toilets are soft-close!**
 * Butler service can be done via WhatsApp, which is 100X more convenient than having to call them using their phone
 
 They gave us a complimentary cake for Serena's birthday after I texted them. I thought it'd take them at least half an hour but they came up **within 15 minutes**. With custom lettering. Insane.
