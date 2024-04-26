@@ -328,6 +328,8 @@ You see, doing economy from SFO isn't that bad because you get the tech bros and
 * They are entitled, part 2: someone kept complaining to one of the flight attendants that during the great Dubai Flood, Emirates wasn't answering her phone calls, as if it was the flight attendant's fault. She kept bitching for 20 minutes, and seem to be unable to wrap around the concept that call lines are probably busy if you all of a sudden have 100X the call volume as normal, and that it is unrealistic for an airline to hire 100X more call operators, and train them, within a 72 hour period.
 * Many times, I saw the attendants' face (yes, multiple) with sighs of frustration, exhaustion, and general questioning of life choices. **I have never seen this once in flight attendants, even on United**. But I saw this many times during my 14 hour flight.
 
+**Keep in mind that these are only the things I witnessed.** I asked Serena about this and she had many more, but similar, horror stories in the premium economy cabin.
+
 After this painful 14 hour flight, we were welcomed in Terminal 4 of JFK with a very full Global Entry line. It was very full because it was full of people in line that were:
 
 * Tourists and thought Global Entry meant "tourists," despite the fact that there is an explicit tourist line right before it.
@@ -346,7 +348,7 @@ Aside from the staycation style 5-star hotel stays, Dubai sucks.
 
 I travel a lot and try to keep an optimism for different cultures and differences, but Dubai is simply a joke. Here's what I hate about Dubai:
 
-* It's shallow and there is no culture at all. Many landmarks are just a bastardized copy/paste of other landmarks. Vegas does this too, but it is obvious that it is supposed to be a Parody. Dubai tries to spin their landmarks off as high-tech or something authentic, which feels gross.
+* It's shallow and there is no culture at all. Many landmarks are just a bastardized copy/paste of other landmarks. Vegas does this too, but it is obvious that it is supposed to be a parody. Dubai tries to spin their landmarks off as high-tech or something authentic, which feels gross.
 * The people work really slowly, like in Europe, except they don't have the vibes nor the attractions to back it up.
 * All Dubai attractions can be done for cheaper and much better elsewhere (except for 5-star hotel staycations which there are an oversupply of in UAE).
 * It's inauthentic: it's a 3rd-world country marketed as a tech-first, high-tech place. It cannot weather a regular-sized rainstorm without shutting down the city for days.
