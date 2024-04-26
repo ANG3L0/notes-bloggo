@@ -122,6 +122,13 @@ Next day we went to the 3rd biggest mosque in the world / largest in UAE. Not as
 
 But it's free, so.
 
+Here's a video walkthrough as pictures don't do the room justice:
+
+<video controls  style="height:720px;">
+  <source src="../images/regis_walk.mp4" type="video/mp4">
+  Your browser does not support the HTML5 video tag.
+</video>
+
 ### Conrad (April 21)
 
 As I write this whole post, I am in Conrad. Also very nice in its own way. St. Regis suite is very luxurious, smells amazing, and has its own personality. Conrad's room is more streamlined, but still very 5-stars and grand. Conrad's gym is also nicer.
@@ -142,6 +149,13 @@ Checkout was very slow. 15 minutes and there was only 2 people in front of us. T
 Upon checkout, booked a 3-hour ride to go to a famous [Ritz Carlton in the desert](https://www.ritzcarlton.com/en/hotels/rktrw-the-ritz-carlton-ras-al-khaimah-al-wadi-desert/overview/?nst=paid&cid=PAI_GLB00050K5_GLE000C53T_GLF000QGQD&ppc=ppc&pId=corpimedia&gad_source=1&gclid=CjwKCAjwuJ2xBhA3EiwAMVjkVGSC9kS547900bwDu72nUkgVZ_SXWy8UC_vKNWBYs0X-AnIH3Y_XLhoC3NoQAvD_BwE&gclsrc=aw.ds), where celebrities and royalty go.
 
 3/5 stars.
+
+Video walkthrough:
+
+<video controls  style="height:720px;">
+  <source src="../images/conrad_walk.mp4" type="video/mp4">
+  Your browser does not support the HTML5 video tag.
+</video>
 
 ### Ritz (April 22)
 
@@ -164,12 +178,12 @@ But on April 22, we:
 * Attended a falcon show.
 * Ate a delicious steak dinner.
 
-<video controls  style="height:720px;">
+<video controls  style="height:500px;">
   <source src="../images/ritz_tortoise.mp4" type="video/mp4">
   Your browser does not support the HTML5 video tag.
 </video>
 
-<video controls  style="height:720px;">
+<video controls  style="height:500px;">
   <source src="../images/ritz_falcon.mp4" type="video/mp4">
   Your browser does not support the HTML5 video tag.
 </video>
@@ -187,6 +201,10 @@ Main differentiators:
 * Yummy steakhouse
 * Diptique amenities
 
+Steak dinner:
+
+![Ritz steak dinner in Dubai](../images/ritz_steak_dubai.jpg)
+
 Bad:
 
 * Staff is confused. Some would say booking a taxi takes credit card, but last minute told us that we needed cash.
@@ -203,6 +221,136 @@ Overall, good experience but a lot of small details make the high-ticket pricing
 
 Rating: 2/5 stars.
 
+Video walkthrough:
+
+<video controls  style="height:720px;">
+  <source src="../images/ritz_walk.mp4" type="video/mp4">
+  Your browser does not support the HTML5 video tag.
+</video>
+## Back To Dubai
+
+We wanted to stay a night at Dubai because we were leaving the next day, and didn't want to risk a very long car ride to DXB.
+
 ### Haptoor Luxury Palace (April 23)
 
 This is the last hotel.
+
+Didn't have much expectations for this one as this was the cheapest Amex Fine Hotel Resorts. The room they upgraded us to was ***gigantic.*** Giant bedroom area that is probably much larger than most single family homes' master bedroom. And a living room area housing 3 sofas + coffee table + TV, with ample room to move around. The bathroom was large as well, a little bit smaller than St. Regis', but not by much, maybe 20 sqft. And a walk-in closet.
+
+<video controls  style="height:720px;">
+  <source src="../images/haptor_walk.mp4" type="video/mp4">
+  Your browser does not support the HTML5 video tag.
+</video>
+
+Anyway, here are their differentiators:
+
+* Huge space
+* Diptique amenities, like St. Regis, but you can take these home as they are packaged
+* Like St. Regis, there is complimentary snacks + arabic coffee at reception lobby
+* Live music from time to time (harp and piano) at lobby.
+* Some complimentary amenities, like candied dates (ranging from dark to white chocolate to rose-flavored)
+* Excellent service; they also have butler service like St. Regis
+* Butler service can be done via WhatsApp, which is 100X more convenient than having to call them using their phone
+
+They gave us a complimentary cake for Serena's birthday after I texted them. I thought it'd take them at least half an hour but they came up **within 15 minutes**. With custom lettering. Insane.
+
+![Birthday cake at Haptor Palace](../images/haptor_bday.jpg)
+
+Here's the dates snack that they gave us:
+
+![Dates](../images/haptor_dates.jpg)
+
+Dinner was quite good; their steakhouse is a bit expensive ($200 for 2) but it is a tomahawk deal. We skipped it since we just had steak at Ritz, and Florence tomahawk steaks are less than half the price, so it seems like a bad deal, even with Amex covering $100 of the cost. Instead, we went to the restaurant next door, which is a French + Italian fusion place, as far as I can tell. Had escargot and pasta. Surprisingly good, given I normally hate fusion cuisine. And surprisingly full, as the portions are not small. The escargot was really good because they took it out of the shell for you, and was piping hot, with a little pastry puff on top.
+
+![BQ restaurant escargot at Haptor Palace](../images/haptor_escargot.jpg)
+
+![BQ restaurant pasta](../images/haptor_pasta.jpg)
+
+Pasta was good - very tomato-y sauce and very generous with shrimp.
+
+Everything was excellent, and since our flight was at 3AM next day, they let us extend our stay from 4PM checkout to 5:30PM checkout.
+
+I give this a 4/5 stars though because 1) the room did smell like stale cigarettes, and 2) the check-in process was a bit confusing.
+
+## Long Way Home
+
+### Dubai Mall
+
+We left the hotel at 6PM and walked around the Dubai Mall a bit, until 11PM. We went to their mall's Chinatown, which had pretty good food, though New York prices.
+
+Here's some Lanzhou noodle we had, but we also had Dan Dan Mien and some grilled lamb.
+
+![Dubai Lanzhou Noodles](../images/dubai_chinese_noodle.jpg)
+
+Then, we saw the famed Dubai Fountain show. It is a bit lackluster compared to Macau's or Las Vegas's, but it's free, so whatever. It was crowded but the secret we found later on is that if you go to the Nike Store inside, you can see the fountain show again, without the crowds.
+
+![Dubai Mall Chinatown](../images/dubai_mall_ctown.jpg)
+
+Walked back in and saw the aquarium. You don't really need tickets to go, as you can see the whole thing outside, and there are multiple angles you can view it, from different floors and areas of the mall. Tons of fish, shark, stingray, and other fish somehow getting along and not ripping each others' head off. Miraculous.
+
+![Dubai mall aquarium](../images/dubai_mall_aqua.jpg)
+
+<video controls  style="height:720px;">
+  <source src="../images/dubai_mall_fish.mp4" type="video/mp4">
+  Your browser does not support the HTML5 video tag.
+</video>
+
+### DXB
+
+DXB is kind of a shitshow, but not as much as JFK is. We went to a lounge but Priority Pass / Amex wasn't accepted, even though there are large signs to say that Priority Pass is welcome. This is confusing. Next, we went to another lounge, which is a restaurant, basically, and sat there for a couple hours.
+
+Went to our gate, but there's additional security checks. The guy literally scanned every single item in everyone's bags. There were only 4 people ahead of us, but the whole process took 25 minutes. This is to the point where they were announcing final boarding which was hilarious because half the plane is stuck behind the guards doing their jobs very slowly.
+
+Even the guy's manager is telling him to hurry the hell up, to which he continued at the same pace.
+
+And the irony of it all? Despite it being the longest and "most thorough" security check I've ever been in, Serena still accidentally had her water bottle we got from the airport lounge through. (No, water's not allowed--they made me throw mine away).
+
+It gets kind of worse.
+
+Serena had premium economy and I rode in economy, in the same flight. It's always suffering to fly one way business class, and the other economy. 
+
+But what made it worse was the people. Different airports attract different demographics.
+
+You see, doing economy from SFO isn't that bad because you get the tech bros and some VCs, mostly. The latter are annoying because they talk too much, but nothing like the demographic that DXB attracts. Here's a shortlist of the highlights of what the DXB takeoff demo:
+
+* They boss around flight attendants around constantly, like they are flying first/business, despite being in economy.
+    * Flight attendants running around constantly, very busy, all 14 hours of the flight--I have never seen this much flight attendant activity.
+    * Ex: They might order food, but want to schedule it for 45 minutes later while the rest of the cabin has their food now.
+    * Ex: They want extra slippers, even though there are no amenities for slippers.
+    * Ex: They want to swap seats on takeoff and landing, just because.
+* They don't respect personal space. One guy kept touching my jacket and I told him not to touch my stuff and he looked at me like I am a maniac and told me to "calm down."
+* They are entitled. I already scooted out of the way so these guys who kept touching my jacket could go to the bathroom but they told me to move even more so they can go to the toilet (I guess they wanted me to go all the way to the front, past the bathroom). I'm not going to do more than the minimum to let someone go to the bathroom, because what's next, they want me to wipe their ass for them? Instead, I just retorted that the toilets are in the back and I was in front of them and was already out of their way, so I don't know where they want me to move.
+* They are entitled, part 2: someone kept complaining to one of the flight attendants that during the great Dubai Flood, Emirates wasn't answering her phone calls, as if it was the flight attendant's fault. She kept bitching for 20 minutes, and seem to be unable to wrap around the concept that call lines are probably busy if you all of a sudden have 100X the call volume as normal, and that it is unrealistic for an airline to hire 100X more call operators, and train them, within a 72 hour period.
+* Many times, I saw the attendants' face (yes, multiple) with sighs of frustration, exhaustion, and general questioning of life choices. **I have never seen this once in flight attendants, even on United**. But I saw this many times during my 14 hour flight.
+
+After this painful 14 hour flight, we were welcomed in Terminal 4 of JFK with a very full Global Entry line. It was very full because it was full of people in line that were:
+
+* Tourists and thought Global Entry meant "tourists," despite the fact that there is an explicit tourist line right before it.
+* People not registered for Global Entry, who lined up in the wrong line and thought they would register there (it's a different line).
+* People who are Global Entry, but didn't bother doing the 3-second face scan, so held up the line as officers needed to verify that they were in fact Global Entry.
+
+What should have been a 20-second line was 30-mins+.
+
+Good thing the luggage took 90 minutes to get delivered to the belt though, so it didn't matter much.
+
+I live in NY and so I always joke around internally that NY is a shithole, but I've never felt such relief and joy getting back home to my NY apartment.
+
+## Conclusion And Lessons
+
+Aside from the staycation style 5-star hotel stays, Dubai sucks.
+
+I travel a lot and try to keep and optimism for different cultures and differences, but Dubai just plainly sucks. Here's what I hate about Dubai:
+
+* It's shallow and there is no culture at all. Many landmarks are just a bastardized copy/paste of other landmarks.
+* The people work really slowly, like in Europe, except they don't have the vibes nor the attractions to back it up.
+* All Dubai attractions can be done for cheaper and much better elsewhere (except for 5-star hotel staycations which there are an oversupply of in UAE).
+* It's inauthentic: it's a 3rd-world country marketed as a tech-first, high-tech place. It cannot weather a regular-sized rainstorm without shutting down the city for days.
+* There's not really good food there, except restaurants that copy other cuisines.
+
+Without drugs and hookers, Dubai is basically Vegas, minus the fun and is more expensive.
+
+For Middle Eastern culture and authenticity and a place worth visiting (and MUCH cheaper), I find Morocco to be superior in every single possible way.
+
+### Lesson
+
+**Marketing > product.** Dubai is super popular (and I went because of Dubai Bling, mostly) and is marketed as a very high-tech, cool place to be. But upon visiting, you find out that the product sucks. Despite this, the marketing keeps Dubai alive and there's something to be said about marketing hard despite your product being complete shit to do well in business.
