@@ -206,3 +206,9 @@ Daily reports are kind of a waste of time. Some say you should take the average 
 * **Mar 26: 176.2lb, 20.3%, raw**
     * Some fluctuations. Relatives in town and ate many cheat meals, but trend is OK still.
     * Traveling for a bit, so it is hard to weigh myself accurately the next month or so.
+
+* **Apr 26: 179.2lb, 20.6%, raw**  -- new baseline.
+
+    * Good, all things considered. Traveled for a month and didn't cardio for a week in Dubai since the gym was flooded and the treadmills were dead. The streets were also dangerous to walk in. I could've been more hardcore and just walked in circles in the hotel lobby, but didn't. Will weigh-in again on 30th as that lands on Tuesday, the day of the other weigh-ins.
+
+    
