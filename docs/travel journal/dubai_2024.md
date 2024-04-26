@@ -263,13 +263,17 @@ Here's the dates snack that they gave us:
 
 Dinner was quite good; their steakhouse is a bit expensive ($200 for 2) but it is a tomahawk deal. We skipped it since we just had steak at Ritz, and Florence tomahawk steaks are less than half the price, so it seems like a bad deal, even with Amex covering $100 of the cost. Instead, we went to the restaurant next door, which is a French + Italian fusion place, as far as I can tell. Had escargot and pasta. Surprisingly good, given I normally hate fusion cuisine. And surprisingly full, as the portions are not small. The escargot was really good because they took it out of the shell for you, and was piping hot, with a little pastry puff on top.
 
+**Best part**: for the entire 2-hour service, the large restaurant was empty and it literally was just us 2. The next morning though, we had free breakfast buffet at the same place, and it was packed.
+
 ![BQ restaurant escargot at Haptor Palace](../images/haptor_escargot.jpg)
 
 ![BQ restaurant pasta](../images/haptor_pasta.jpg)
 
 Pasta was good - very tomato-y sauce and very generous with shrimp.
 
-Everything was excellent, and since our flight was at 3AM next day, they let us extend our stay from 4PM checkout to 5:30PM checkout.
+Next morning, we had breakfast buffet there like all other 5-star hotels. Ordered eggs, like all other 5-star hotels. Their hash brown's really good though compared to the other ones. Others are too burned, or not crispy enough, or too dry on the inside. This one was perfect though.
+
+Whole stay was excellent overall. Since our flight was at 3AM next day, they let us extend our stay from 4PM checkout to 5:30PM checkout.
 
 I give this a 4/5 stars though because 1) the room did smell like stale cigarettes, and 2) the check-in process was a bit confusing.
 
@@ -340,15 +344,17 @@ I live in NY and so I always joke around internally that NY is a shithole, but I
 
 Aside from the staycation style 5-star hotel stays, Dubai sucks.
 
-I travel a lot and try to keep and optimism for different cultures and differences, but Dubai just plainly sucks. Here's what I hate about Dubai:
+I travel a lot and try to keep an optimism for different cultures and differences, but Dubai is simply a joke. Here's what I hate about Dubai:
 
-* It's shallow and there is no culture at all. Many landmarks are just a bastardized copy/paste of other landmarks.
+* It's shallow and there is no culture at all. Many landmarks are just a bastardized copy/paste of other landmarks. Vegas does this too, but it is obvious that it is supposed to be a Parody. Dubai tries to spin their landmarks off as high-tech or something authentic, which feels gross.
 * The people work really slowly, like in Europe, except they don't have the vibes nor the attractions to back it up.
 * All Dubai attractions can be done for cheaper and much better elsewhere (except for 5-star hotel staycations which there are an oversupply of in UAE).
 * It's inauthentic: it's a 3rd-world country marketed as a tech-first, high-tech place. It cannot weather a regular-sized rainstorm without shutting down the city for days.
 * There's not really good food there, except restaurants that copy other cuisines.
+* There's a strong sense of hierarchy there, where if you have more money you are better than other people and can treat others rudely.
+* Aside from 5-star hotels, service everywhere universally sucks. Worse than NY and that's saying a lot.
 
-Without drugs and hookers, Dubai is basically Vegas, minus the fun and is more expensive.
+Without drugs and hookers / strip clubs, Dubai is basically Vegas, minus the fun and is more expensive.
 
 For Middle Eastern culture and authenticity and a place worth visiting (and MUCH cheaper), I find Morocco to be superior in every single possible way.
 
