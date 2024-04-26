@@ -332,7 +332,7 @@ You see, doing economy from SFO isn't that bad because you get the tech bros and
 
 After this painful 14 hour flight, we were welcomed in Terminal 4 of JFK with a very full Global Entry line. It was very full because it was full of people in line that were:
 
-* Tourists and thought Global Entry meant "tourists," despite the fact that there is an explicit tourist line right before it.
+* Tourists that thought Global Entry meant "tourists," despite the fact that there is an explicit tourist line right before it.
 * People not registered for Global Entry, who lined up in the wrong line and thought they would register there (it's a different line).
 * People who are Global Entry, but didn't bother doing the 3-second face scan, so held up the line as officers needed to verify that they were in fact Global Entry.
 
@@ -340,7 +340,7 @@ What should have been a 20-second line was 30-mins+.
 
 Good thing the luggage took 90 minutes to get delivered to the belt though, so it didn't matter much.
 
-I live in NY and so I always joke around internally that NY is a shithole, but I've never felt such relief and joy getting back home to my NY apartment.
+I live in NY and so I always joke around internally that NY is a shithole, but I've never felt such relief and joy getting out of the airport and home to my NY apartment.
 
 ## Conclusion And Lessons
 
