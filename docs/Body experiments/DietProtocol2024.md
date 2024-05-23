@@ -211,4 +211,13 @@ Daily reports are kind of a waste of time. Some say you should take the average 
 
     * Good, all things considered. Traveled for a month and didn't cardio for a week in Dubai since the gym was flooded and the treadmills were dead. The streets were also dangerous to walk in. I could've been more hardcore and just walked in circles in the hotel lobby, but didn't. Will weigh-in again on 30th as that lands on Tuesday, the day of the other weigh-ins.
 
+* **Apr 30: 176.6lb, 20.4%**
+
+    * OK.
+
+* **May 21: 172.8, 19.5% bf, raw**
+
+    * Bad. Seems like I've lost some water weight and stuff. But, I've also gotten weaker at the gym by a lot. Instead of 180g+ protein per day, been slacking and maybe only doing 100-120g for past couple weeks. As such, endurance is almost halved for lifting heavy weights. On top sets, probably only about 80% of beginning of bulk.
+    * Due to this messup, I probably need to cut the cut short to around end of June (more specifically, July 2nd as that lands on a Tuesday) and then start bulking up.
+
     
