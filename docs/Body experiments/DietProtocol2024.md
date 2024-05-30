@@ -213,11 +213,17 @@ Daily reports are kind of a waste of time. Some say you should take the average 
 
 * **Apr 30: 176.6lb, 20.4%**
 
-    * OK.
-
 * **May 21: 172.8, 19.5% bf, raw**
 
     * Bad. Seems like I've lost some water weight and stuff. But, I've also gotten weaker at the gym by a lot. Instead of 180g+ protein per day, been slacking and maybe only doing 100-120g for past couple weeks. As such, endurance is almost halved for lifting heavy weights. On top sets, probably only about 80% of beginning of bulk.
     * Due to this messup, I probably need to cut the cut short to around end of June (more specifically, July 2nd as that lands on a Tuesday) and then start bulking up.
+
+* **May 28: 174.6, 19.9% bf**
+
+    * Not raw weight so hard to know what this means. Though over the weekend there were more cheat meals.
+
+* May 30: 172, 19.4% bf, raw.
+
+    * I was sick for the past 5 weeks and working out has been hard in terms of being able to do max effort due to coughing. Now that I've reunited with Serena, she seems to have picked up a strain of some other cold or COVID and I am getting sick all over again. So max effort in gym is very hard, which means cutting or bulking extremely difficult.
 
     
