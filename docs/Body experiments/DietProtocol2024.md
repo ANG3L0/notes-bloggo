@@ -226,4 +226,6 @@ Daily reports are kind of a waste of time. Some say you should take the average 
 
     * I was sick for the past 5 weeks and working out has been hard in terms of being able to do max effort due to coughing. Now that I've reunited with Serena, she seems to have picked up a strain of some other cold or COVID and I am getting sick all over again. So max effort in gym is very hard, which means cutting or bulking extremely difficult.
 
+* **Jun 4: 171.2, 19.2% bf raw**
+
     
