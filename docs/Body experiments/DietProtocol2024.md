@@ -228,4 +228,8 @@ Daily reports are kind of a waste of time. Some say you should take the average 
 
 * **Jun 4: 171.2, 19.2% bf raw**
 
+* **Jun 11, 170.4, 18.9% bf raw**
+
+    * These final few weeks of cut, I will probably subtract cheat days.
+
     
