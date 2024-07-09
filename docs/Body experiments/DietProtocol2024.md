@@ -156,6 +156,24 @@ But weight + bf is easy enough to understand so I'll use those stats. To supplem
 
 Daily reports are kind of a waste of time. Some say you should take the average (or median is probably better) of your daily measurements across a week. I'll just update the below once or twice a week, and then post-process after.
 
+### Final Results
+
+**Down 29.6 pounds. Down 6.7% bodyfat.**
+
+Endurance weight lifting (5x10 at 70% 1RM) has decreased to about 70-80% of what it was (can only pump out 70-80% of reps compared to at peak bulk).
+
+My max bench has maintained, however, at 235 lbs. No significant max strength loss.
+
+**What went well:** Despite traveling and cheating for about ~8 weeks in 1H 2024, I still lost 29.6 pounds and 6.7% bodyfat. Looked at some photos and I was pretty fluffy and now shredded.
+
+**What could have went better: ** Probably a little bit more cardio to cut more. Probably could have not have 'let loose' as much while traveling.
+
+Below's a graph of my real weight (blue trend) vs. ideal (if I lost 1% body weight per week):
+
+![Tuna bomb](../images/real_vs_ideal.jpg)
+
+As you can see (if you open image in new tab and zoom in), my ideal weight is 150.9 for this cut and I ended up at 166.7. Or about 15.47lb more than what an optimal diet would be. This is around an additional *50%* of weight cut. Even though that is significant I am still somewhat happy with the results. Physique looks much better than 6 months ago and without much strength loss.
+
 ## Log
 
 "Raw" means I just woke up, peed, and naked. Otherwise you may consider it as uncalibrated / more or less a rough estimation of state.
@@ -232,4 +250,8 @@ Daily reports are kind of a waste of time. Some say you should take the average 
 
     * These final few weeks of cut, I will probably subtract cheat days.
 
-    
+* **Jun 18, 169.0, 18.7% bf raw**
+* **Jun 25, 171.0, 19.1% bf**
+* **Jul 2, 168.4, 18.5% bf raw**
+* **Jul 9, 166.4, 18.1% bf raw**
+    * End of cut. Fasted day before.
