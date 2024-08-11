@@ -132,3 +132,57 @@ Dishes of highlight were:
 At the end, they kept pushing me for a 10% tip, to which I said no because there's already a 4.8 euro service charge per person. And in Europe, it is not customary to leave a percentage based tip. So nah.
 
 5/5. Except 4/5 because the weird tipping thing.
+
+## Day 3: The Wedding!
+
+Did breakfast, skipped gym, and went to go shopping.
+
+Witnessed Serena's friends buy some Hermes rings and bracelets.
+
+Went back home, changed, and hopped on a bus to the wedding.
+
+Arrived at 3PM after a 90+ minute bus ride, and the ceremony starts at...3PM. Many people had full bladders, so the ceremony was delayed until 3:10PM so people with bladder control issues (i.e. me) can empty them.
+
+Apertifs from roughly 4P-6P. There was salami with truffles which was really good. I drank quite a bit...of coffee. I also drank some free alcohol as well, but drinkwise it was probably:
+
+1. 1.5 schnapps
+2. 3 glasses wine
+3. 3 espressos (and 3 more in the morning, totaling 6)
+
+As I type this at 1AM after a long day, I am wide awake (I normally sleep at 9PM for comparison).
+
+Dinner from around 6P-8P. It was good. Highlights:
+
+* Steak
+* Risotto
+* Blueberry Macaroon -- nice and tart
+
+8P-9P was just chill and wedding cake cutting / socializing. The wedding cakes were actually 3 cakes/pies and were really good. I liked all 3 varieties they offered, in this order:
+
+1. Lemon meringue pie
+2. Coffee cake
+3. Chocolate mousse
+
+The tartness in the lemon meringue pie really comes through. None of that pussy ass American shit where they say it is a lemon meringue pie but it's just diabetes with a small hint of lemon. The sourness punches through and tastes strong and balances very nicely with the cream on the top of the pie.
+
+9PM was fireworks and first dance, and they danced twice as we demanded an encore. I loved the fireworks as it was super up-close. I haven't had fireworks this up close since I celebrated July 4th at a friend's place where his neighbors were illegally setting off fireworks (which also subsequently set off a bunch of car alarams). But to be fair, this is probably even closer -- the cannons were about 10 meters away.
+
+We all headed to the dance floor and danced at around 10PM. I'm a great improvisational dancer as I like feeling and moving to the beats, and I am generally uninhibited (even when sober).
+
+Headed home from the wedding venue, which is a castle, at around 11PM and then arrived back at hotel at around 12:00AM.
+
+## Day 4: Now I Know Why Arnold Left Austria
+
+For the first time ever in my travel journal, I don't have much to say about this day. We ate and walked around, but since it's Sunday, everything's closed.
+
+Nothing stands out today.
+
+And I guess that's Austria in general for me. The wedding-specific event stands out to me, but everything else is just OK. There's sausages, cheese, and ham for food. There's a limited selection for shopping. Some museums.
+
+Everything Austria has to offer, most other cities offer better versions.
+
+Most things here are just OK (5 to 6 out of 10), but nothing really stands out in Austria, specifically. Nothing's terrible here, except for the lack of air conditioning in most places. People here smoke a lot and there's a lot of body odor here.
+
+Unless you like eating charcuterie for the rest of your life, Austria is boring.
+
+Well, on to the next city.
