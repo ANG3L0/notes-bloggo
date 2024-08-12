@@ -12,7 +12,7 @@ This is a 12 day trip traveling to different places. August 7-19.
 
 For Serena's friend's wedding. And then romantic excursion with Serena.
 
-## Departure: Taylor's Tears
+## Prologue: Taylor's Tears
 
 EWR->VIE.
 
@@ -47,7 +47,9 @@ But obviously, the real solution is just to not get swept up in a celebrity's ma
 
 I like Taylor as much as that next person, but I'd watch her if she was nearby. Not if she's halfway across the world.
 
-## Day 1: 2-Starred Michelin Restaurant
+## Chapter 1: The Austrian Wedding
+
+### Day 1: 2-Starred Michelin Restaurant
 
 Landed around 7AM.
 
@@ -79,7 +81,7 @@ A textured grilled/fried potato. Each slice tasted like McDonald's french fries.
 
 After, we went home and napped until 5:30PM or so. Then went to the welcome dinner.
 
-## Day 2 - Watching Everyone Else Shop But Me
+### Day 2 - Watching Everyone Else Shop But Me
 
 Woke up. Ate breakfast downstairs. Went to hotel gym.
 
@@ -133,7 +135,7 @@ At the end, they kept pushing me for a 10% tip, to which I said no because there
 
 5/5. Except 4/5 because the weird tipping thing.
 
-## Day 3: The Wedding!
+### Day 3: The Wedding!
 
 Did breakfast, skipped gym, and went to go shopping.
 
@@ -171,18 +173,65 @@ We all headed to the dance floor and danced at around 10PM. I'm a great improvis
 
 Headed home from the wedding venue, which is a castle, at around 11PM and then arrived back at hotel at around 12:00AM.
 
-## Day 4: Now I Know Why Arnold Left Austria
+### Day 4: Now I Know Why Arnold Left Austria
 
-For the first time ever in my travel journal, I don't have much to say about this day. We ate and walked around, but since it's Sunday, everything's closed.
+Sunday, everything's closed. Not much stands out today.
 
-Nothing stands out today.
+I do remember that there's a church blasting Taylor Swift for stranded Swifties. But I thought churches were built to worship God and/or Jesus, not false idols (and definitely not celeb idols).
 
 And I guess that's Austria in general for me. The wedding-specific event stands out to me, but everything else is just OK. There's sausages, cheese, and ham for food. There's a limited selection for shopping. Some museums.
 
 Everything Austria has to offer, most other cities offer better versions.
 
-Most things here are just OK (5 to 6 out of 10), but nothing really stands out in Austria, specifically. Nothing's terrible here, except for the lack of air conditioning in most places. People here smoke a lot and there's a lot of body odor here.
-
-Unless you like eating charcuterie for the rest of your life, Austria is boring.
+Most things here are just OK (5 to 6 out of 10), but nothing really stands out in Austria, specifically. Nothing's terrible here, except for the lack of air conditioning in most places. People here smoke a lot and there's a lot of body odor here. Food's only charcuterie.
 
 Well, on to the next city.
+
+## Chapter 2: Nature Calls
+
+### Day 5: Eating (Mostly) Normal Food In Innsbruck
+
+Yesterday, I reservation an Uber XL to show up at 5:20AM to pick us up to go to the train station for 45 euros.
+
+Today, I was taking a dump at around 4:45AM and still no driver took the order. Nearby, there's a bunch of cars and it was only 20 euros if I cancelled the reservation and booked an XL directly.
+
+At 4:48AM I was done with my dump and wanted to cancel, but alas, someone took the order and it'd be 48 euros to cancel.
+
+**The lesson here is don't procrastinate. If there's a good deal, execute immediately.**
+
+Not only that, instead of an XL showing up, just a regular ass 4-person Prius showed up. 2-starred.
+
+We took a train ride to Innsbruck as a way to stage for the next phase of our trip, as a private guide will pick us up from Innsbruck and then show us around Dolomites. Thus, this was mostly a rest day.
+
+For 5 hours of business class train, it only cost 220 euros (110 pp) -- this is insane considering we got a 4-seater cabin to ourselves. An old couple came to take the other 2 seats they reserved, but they wanted more space, so they left after a minute (presumably to find untaken seats in business class). The 5 hours went by fast.
+
+I learned some React.js for a couple hours and fell asleep.
+
+After, we arrived at Innsbruck at 11AM and was able to check in early. Then, we went out to eat at an Italian place. It was really, really good.
+
+For the first meal, we had a salad with burrata. The burrata was super fresh and moist. The pasta was some ragu, and the cherry tomatos really popped. Really hit the spot for my depraved taste buds. **4.5/5 meal.**
+
+![Italian Food 1](../images/innsbruck_meal1.jpg)
+
+Right after, we went to another Italian place. We had a pizza which was mushroom + parma ham. It was really good. The crust was airy/fluffy, like a freshly baked foccacia. The tagliatelle pasta dish had a very rich tomato + olive oil sauce, with some veggies and guancale, which was amazing as well. The mushroom in the pasta was juicy and buttery. The pasta was piping hot *and* al dente which is not a combination I've had in years. Basically, the perfect pasta dish. **5/5 meal.**
+
+![Italian Food 2](../images/innsbruck_meal2.jpg)
+
+You might be wondering, I'm still in Austria, why's there so much Italian food?
+
+Innsbruck is a small strip of land sandwiched between Switzerland, Germany, and Italy. So its cuisine has plenty of influence from all 3 countries.
+
+It's also why it is a great location / staging area, if you want to go travel between these countries.
+
+Before dinner, we went to the hotel spa. First time me and Serena did sauna together. We did a very hot one at around 80C and a much cooler one at ~37C. Went back to our room, showered, and headed out.
+
+For dinner, we had Thai food which was OK (3/5, not worth attaching pics here)--we had a papaya salad which wasn't spicy at all, a coconut crispy duck curry which was good (but could be crispier), and nasi goreng which they confused for curry fried rice. The fried rice was too moist, and to serve nasi goreng as curry fried rice is insane. Nasi goreng and curry fried rice has rice in common, but that's about it. It would be like if I put deep dish pizza on a menu and served you cheeze-its.
+
+Despite this, the restaurant was jam-packed with white people. And it's a large restaurant where the dishes weren't cheap at all.
+
+This brings us to the second lesson: **As long as the market's good, you can get away with selling a mediocre product.** Thus, the most profitable thing that the restaurant did was to invest the time to pick a place to serve Thai food where 1) the people won't know it's mid Thai food, and 2) there's not a lot of competition--this is much better time spent than making their dishes excellent in a more competitive / educated market.
+
+## Lessons
+
+* Execute on good deals / arbitrages immediately. Procrastinating even a few seconds = opportunity gone. The market won't let good opportunities appear for long.
+* As long as the market's good, you can just have a mediocre product. Focus almost all efforts on the market, and just ship a shitty product you improve upon later.
