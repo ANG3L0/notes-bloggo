@@ -231,6 +231,30 @@ Despite this, the restaurant was jam-packed with white people. And it's a large 
 
 This brings us to the second lesson: **As long as the market's good, you can get away with selling a mediocre product.** Thus, the most profitable thing that the restaurant did was to invest the time to pick a place to serve Thai food where 1) the people won't know it's mid Thai food, and 2) there's not a lot of competition--this is much better time spent than making their dishes excellent in a more competitive / educated market.
 
+### Day 6: Mountains & Water
+
+Our tour guide picked us up at ~9A after we did hotel breakfast. Drove us to Dolomites.
+
+Dropped us off at bus stop to take us up to 3 Peaks. Walked around from around 1:30PM to 2:30PM and took the bus back down. Our tour guide then drove us to look at a bunch of lakes. One of the lakes had row boats, which was closed due to incoming bad weather. There was a thunderstorm and we went inside to eat some snacks.
+
+Highways there reminded me of Colorado, as there's many mountain roads.
+
+The mountains + lakes reminded me of Yellowstone / Norway / Preikstolen-type hikes.
+
+After the lakes, our guide drove us some more and we ended up in Chiusa in Bolzano province (we're in Italy now). We broke bread at her favorite restaurant in this small town. The food:
+
+* Pasta was overdone (not al dente)
+* Pasta was OK, but not that hot
+* Bread was good
+* They had ribs, which were very moist. Had horseradish sauce as side but it was too mild
+* I normally don't like white wine, but their local white went down smoothly
+
+Food was OK (better than Vienna), but nothing groundbreaking aside from the ribs.
+
+When our tour guide finally went back to her room, Serena and I walked around the small town a little bit to digest / take in fresh air.
+
+The hotel we're staying at is cheaper as we need to accomodate the tour guide as well (about 100 euros per room) -- it has no air conditioning. If I don't post tomorrow, it means I've died from a heat stroke.
+
 ## Lessons
 
 * Execute on good deals / arbitrages immediately. Procrastinating even a few seconds = opportunity gone. The market won't let good opportunities appear for long.
