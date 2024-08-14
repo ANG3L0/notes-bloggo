@@ -61,7 +61,7 @@ Ate breakfast / bought coffee.
 
 Coffee here is 9 euros which is obnoxious. So we went to luxury shops to **bait free water and coffee**. You basically pretend to be an interested buyer, where then the sales would ask you if you want something to drink (coffee, water, and/or champagne are the usual choices). Exploit their attempt at forcing reciprocity by leaving after you finish your drinks.
 
-Walked around til 12PM where Serena's friends booked a 2-start michelin restaurant.
+Walked around til 12PM where Serena's friends booked a 2-starred michelin restaurant.
 
 It had all the michelin restaurant things. They cooked a piece of char with melted honeywax, and then excavated it once the wax solidified. And it was perfectly cooked. They also had caviar and was pretty extra.
 
@@ -254,6 +254,67 @@ Food was OK (better than Vienna), but nothing groundbreaking aside from the ribs
 When our tour guide finally went back to her room, Serena and I walked around the small town a little bit to digest / take in fresh air.
 
 The hotel we're staying at is cheaper as we need to accomodate the tour guide as well (about 100 euros per room) -- it has no air conditioning. If I don't post tomorrow, it means I've died from a heat stroke.
+
+### Day 7: ...I Smell Bullshit
+
+Today, we went up another mountain in the Dolomites. This one's a bit grander and has more room because it's not off a cliff like yesterday's.
+
+Instead, you take 2 gondolas up to the peak and there's tons of trails for you to walk around. This place is called Seceda.
+<figure>
+<video controls>
+  <source src="../videos/seceda_1.mp4" type="video/mp4">
+  Your browser does not support the HTML5 video tag.
+</video>
+    <figcaption>Some Heidi shit going on here.</figcaption>
+</figure>
+I walked up to a cliff and took some pictures. The ones where I was standing didn't come out too well as I was hunchbacked trying to keep my center of gravity low so I don't fall off the cliff and die. Here's one of me sitting and looking cool though:
+
+![I'm really cool](../images/seceda_imcool.JPG)
+
+After, we wandered to another trail and saw some alpine bulls. They have a distinct bullshit smell. Most cows' feces have a dirtlike smell in the US. These smell more grassy.
+
+![Seceda bulls](../images/seceda_bulls.jpg)
+
+Then, we wandered some more and ate some cake while looking at the view.
+
+![Seceda lunch](../images/seceda_lunch.jpg)
+
+We then went down the mountain and went to some photos of a farmer's backyard. This place is supposed to be a [photographer's wet dream](https://www.ranuihof.com/en/residenzaranuihof/chiesettadiranui/). Other than it being very pretty and colorful, I don't know all the technical details of why photographers love it so much. Interestingly, farmers hate tourists stepping on their grass and invading their pastures, as it ruins the grass for grazing and for repackaging / selling. This farmer capitalized on tourist market's obsession with taking photos while in meadows by setting up an automated payment system where you enter/exit a small path to a church and you can take as many photos as you want. This controls the loss of grass to be in the path, and the barrier to the path is a [full-sized turnstile, like in the MTA](https://www.turnstiles.us/product/full-height-turnstile-mta-transit-curved-arm-single/), activated by a credit card payment.
+
+**In other words, *this farmer capitalized on the market opportunity and made it 100% passive* by having tourists self-service the whole customer journey: pay, go in, take pictures, and leave.**
+
+With photo-op done, we ate lunch with our tour guide. I ate knurdels for the first time which is basically a big breaded ball. Was good, but since we sat outdoors there were flies and some wasps.
+
+The European way is to sit outdoors and eat which is supposed to be a way to relax. I personally don't think getting attacked by wasps every meal is a good way to relax and I will never get why people want to sit outdoors and get sunburned while eating. Give me that comfy, air-conditioned shit every time.
+
+Interestingly, wasps have only been a problem in recent years as Austria passed legislation to ban bee-traps. This is to promote bees/wasp population for mysterious reasons. But before this law, bee-traps were everywhere in front of restaurants, so diners won't get attacked.
+
+As an aside, I feel like they take this eco-friendly shit way too far in Austria. Most places don't have air-conditioning to save electricity. Obvious ploy to save money only, and not about the envrionment at all.
+
+Because obviously stopping global warming means nothing if we all died from a heat stroke while fighting off an allergic reaction to wasps. *Was just trying to eat outside and lay in my hotel room, now I'm dead, thanks.*
+
+Anyway, after lunch was over, we took a 2h 30 minute journey to Kufstein. Supposedly 2h journey, but the last 40 minutes we got slammed by a relentless rain/hailstorm. In the video below, you'll notice that for the most part, as soon as the windshield wiper wipes away water, it is instantly flooded again with a new layer of water, obscuring view.
+
+<figure>
+<video controls>
+  <source src="../videos/hell_hail.mp4" type="video/mp4">
+  Your browser does not support the HTML5 video tag.
+</video>
+    <figcaption>Spoiler alert: I didn't die.</figcaption>
+</figure>
+
+Having survived this not-so-traumatizing experience, we had dinner at our hotel restaurant. This is most due to us not wanting to walk in the rain after being completely drenched at check-in. It was actually really good. We had:
+
+* Veal liver
+* Tagliatelli with chantrelle
+
+The liver was great because it wasn't gamey at all. They probably soaked it in vinegar to get rid of the gamey smell. The sauce is also nice and tart, and it also had a very tart apricot. This balances very nicely with the heaviness of the liver.
+
+Chantrelle is an expensive type of mushroom, and they used a ton of it with pea sprouts + cheese to do pasta. It tasted very unique and more importantly, very delicious.
+
+![Dinner in Kufstein](../images/kuftstein_dinner.JPG)
+
+
 
 ## Lessons
 
