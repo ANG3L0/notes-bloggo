@@ -271,6 +271,8 @@ I walked up to a cliff and took some pictures. The ones where I was standing did
 
 ![I'm really cool](../images/seceda_imcool.JPG)
 
+Me posing in the Dolomites looks way cooler than [Federer doing the same for LV](https://www.instyle.com/thmb/u4HFeuOJ3IO1XSvVWO2P-Fwb7o4=/750x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Screenshot2024-05-17at7.27.11PM-453a5e530d12456e84df9e6ff6ffb360.png).
+
 After, we wandered to another trail and saw some alpine bulls. They have a distinct bullshit smell. Most cows' feces have a dirtlike smell in the US. These smell more grassy.
 
 ![Seceda bulls](../images/seceda_bulls.jpg)
@@ -314,7 +316,104 @@ Chantrelle is an expensive type of mushroom, and they used a ton of it with pea 
 
 ![Dinner in Kufstein](../images/kuftstein_dinner.JPG)
 
+## Chapter 3: Romantic Something Something
 
+### Day 8: Small Towns Are Underrated
+
+This is the first day where Serena and I are alone. No weddings, no friends, no tour guide. Just romantic something something.
+
+There's a place nearby in Kufstein called Kaiser Mountain (King Mountain) and we took the Kaiser lift to get there. It's pretty nice and you can see green mountains everywhere. Unlike the Rocky Mountains where it is just a bunch of rocks, there's a nice mixture of rocks, small rivers, and greenery here.
+
+The ski lift ride up is **literally 30 minutes long, each way.** With an intermission in between (so 2 x 15 minute rides) to use the restroom. I've a video of going up but for brevity, the video going down looks better as you can see the houses in the valley, so I'll just attach that instead below.
+
+After we got up there, we looked at the viewpoint:
+
+![Kaiser Mountain peak](../images/kaiser_viewpoint.jpg)
+
+Then we headed straight to the alpaca shed. It was guarded by an electric rope as the area was closed as today's a public holiday, but you can just unhook it and let yourself in. They were really chill and cool. Just look at them:
+
+<figure>
+<video controls>
+  <source src="../videos/alpacas.mp4" type="video/mp4">
+  Your browser does not support the HTML5 video tag.
+</video>
+    <figcaption>Cute.</figcaption>
+</figure>
+
+![Alpaca selfie](../images/alpaca_selfie.jpg)
+
+Once we're done with the alpacas, we went to eat lunch at a restaurant near the peak of the mountain. They served cows right next to the restaurant, and I'm pretty sure the owner lives in the restaurant as there's a bedroom there and the kitchen looked residential. The snacks (and view) we have there is amazing though:
+
+![Kaiser Mountain lunch + view](../images/kaiser_lunch_view.jpg)
+
+We had apple strudel, apricot cake, and some local beer (lemonade + beer). We also had buttermilk which tasted like a lighter yogurt drink.
+
+Took the 30-minute ski lift back and went back to the hotel:
+
+<figure>
+<video controls>
+  <source src="../videos/going_down_kaiser.mp4" type="video/mp4">
+  Your browser does not support the HTML5 video tag.
+</video>
+    <figcaption>Other than the noise of my fidgeting, note that it is eerily quiet.</figcaption>
+</figure>
+
+Our hotel has a staycation package where they include:
+
+* Free drinks
+* Free "coffee and cake"
+* Free 5-course dinner
+
+So we got the coffee and cake. It was good but wasps is really a huge issue here--we had our snack indoors.
+
+![Coffee & cake indoors, with wasps](../images/kufstein_snack.jpg)
+
+After all those carbs, we walked around town just to soak in the small town vibes. But we bumped into a bus that took us to a big lake ([Hechtsee](https://de.wikipedia.org/wiki/Hechtsee)) nearby that's a popular attraction. We were planning to go there tomorrow as busses only come once an hour, but since we got lucky and randomly bumped into a departing bus, we jumped in right away.
+
+**Transport costs:** Hotels in Kufstein offer a "Kufstein Card" where you can enjoy various amenities for free. One was the ski lift in the morning (you can only do it once) -- the other is unlimited bus rides.
+
+We got to the lake and it was 4.50 euro per person to get in. It turned out the lake wasn't just a viewpoint, but a huge beachlike area with tons of things to play around with. From swings, to ping pong, to paddleboards, diving boards, and other weird contraptions built on the lake.
+
+![Hechtsee Lake](../images/hechtsee.jpg)
+
+After the lake, we went back to the hotel and showered. I learned React for a bit and then went down to redeem the free 5-course dinner. We had:
+
+1. Bread with 3 spreads: heavy pistaccio cream, tomato, and onion + crab.
+    1. The pistaccio was very pistaccio, and I've never tasted anything like it.
+    2. The tomato was too salty as they added salt on top of the tomato. I don't think this was necessary as tomato comes with natural MSG already.
+    3. Onion + crab spread was delicious. They put a few slices of fried onions on the top of this spread to further draw out flavors.
+2. Sparkling wine, went down easy.
+3. First course: Some meaty veal thing. It was savory, but was nicely balanced by the lime gel / capers.
+4. Second course: Very nice savory soup. They put frothy cheese or something at the top and it helped balance out the saltiness of the soup. There's a lot of bread on the table still so it is easy to further balance the saltiness. The soup also came with garlic bread croutons + chives, which is really good.
+5. Third course: Same tagliatelle in yesterday's entry, except instead of chantrelle, they did black truffles, and it was in more of an antipasti portion.
+6. Fourth course: Chicken. It was a little dry, but only a little bit. Really like their use of pea shoots and pea stock with the chicken. The "farmer's curd" also just seems like thanksgiving stuffing which is nice and bready, and a little sweet.
+7. Fifth course: Cake. It was a good cake. Not too sweet. The outlier here is the pineapple, which they took the time to burn some sugar at the top so it formed a nice, crunchy crust, like a creme brulee. Biting on the juicy pineapple to contrast the cake was already really good, but the juxtaposition of the soft texture of the pineapple vs. the crunchy, potato-chip-like texture of the crust...chef's kiss.
+
+![Kufstein menu](../images/kufstein_5_course.jpg)
+
+Interestingly, we got the German menu. I saw the word "ananas" and tried to guess what it means. See if you can guess?
+
+The obvious and correct answer is...
+
+bana--pineapple.
+
+Yep, ananas means pineapple.
+
+![Actual dinner](../images/kufstein_five_pics.jpg)
+
+Anyway: tasty, full eating, and most importantly, no wasps. **Easy 5/5.**
+
+Our tour guide told us a few days ago that small towns have good food. This is because unlike big towns, small town restaurants rely heavily on repeat customers, instead of having a steady stream of brand new customers / tourists. Everyone also knows each other in a small town, so word spreads quickly if your food is low quality. Thus:
+
+> If they make shit, everyone will know it is shit.
+
+And so only great food survives in small towns. Not only that, small town food prices are much cheaper as they're meant to cater to locals that aren't necessarily wealthy.
+
+Way above average food with way below average prices means **small towns (in Europe) are the ultimate food arbitrage**.
+
+Starting to enjoy small European towns more and more, as opposed to big/busy ones where you have to fight with tourists to get any scraps of good food.
+
+The downside is the wasps and lack of AC. You might think "well, then just go in the fall/winter" -- but most restaurants close when it's not high season (summer). So for small towns you'll have great food arbitrage but you'll need to share it with wasps normally, while having a heat stroke.
 
 ## Lessons
 
