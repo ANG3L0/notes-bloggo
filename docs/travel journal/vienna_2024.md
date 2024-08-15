@@ -405,7 +405,7 @@ Anyway: tasty, full eating, and most importantly, no wasps. **Easy 5/5.**
 
 Our tour guide told us a few days ago that small towns have good food. This is because unlike big towns, small town restaurants rely heavily on repeat customers, instead of having a steady stream of brand new customers / tourists. Everyone also knows each other in a small town, so word spreads quickly if your food is low quality. Thus:
 
-> If they make shit, everyone will know it is shit.
+> If you make the shit, everyone will know it is shit.
 
 And so only great food survives in small towns. Not only that, small town food prices are much cheaper as they're meant to cater to locals that aren't necessarily wealthy.
 
