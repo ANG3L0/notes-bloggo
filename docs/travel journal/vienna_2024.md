@@ -415,7 +415,99 @@ Starting to enjoy small European towns more and more, as opposed to big/busy one
 
 The downside is the wasps and lack of AC. You might think "well, then just go in the fall/winter" -- but most restaurants close when it's not high season (summer). So for small towns you'll have great food arbitrage but you'll need to share it with wasps normally, while having a heat stroke.
 
+### Day 9: We did a lot but doesn't feel like it
+
+We woke up without an alarm, ate breakfast, and went back to the same lake as yesterday.
+
+Only this time, we were in our swimsuits and ready to swim.
+
+We swam around the lake and I enjoyed these amenities from the beach:
+
+* Floating wooden islands for you to sunbathe, in the middle of the lake
+* Diving board
+* Big floatie, resembling a mini American-Ninja warrior course
+* A wooden ship linked to a rope where you can pull on it and go back and forth
+
+There were no paddleboards to rent. But anyway, we also swam around the lake quite a bit. Got there at around 10:30AM left around 12:30PM. 6 euros per person. Much less crowded today as it isn't a public holiday.
+
+When you get close to Austrians, they start speaking German to you. Even when you look like I do.
+
+That's when I had the realization that since these people are likely to have never left Austria, they have the same view of the world as when I was 6 and I immigrated to the US--there's no concept of language, human beings only communicated through speech. But the speech / language was universally the language I spoke.
+
+Went back to town and ate lunch:
+
+1. Blood sausage with tomatos and egg. Blood sausage is normally gamey and this isn't, so good technique on them. It's also much creamier than normal blood sausage, which is more chalky. I do like the raw taste of iron/gaminess though, so I prefer if they didn't take the extra step to remove it. But all in all great technique and still delicious.
+2. Flammkuchen (flame cake, which is just a thin crust pizza) with mountain cheese and bacon bits. Yummy, especially the crust which is crispy to the point that it's got the texture of a potato chip. The dough in the middle is a bit too doughy though.
+    1. ![Lunch break](../images/kupfstein_lunch_aug16.jpg)
+3. Shredded pancakes, or Kaiserschmarrn. Had this in Vienna, it was shit. Tasted like shredded eggos. Had it here in Kufstein, it was *amazing.* First, sliced fruit to pair with the pancakes to balance out the sweetness with some tartness. Also, the pureed apple sauce (cup in picture) doesn't seem like they added additional sugar, so it was also light and tart which balanced the pancake. The pancake itself is amazing. Nicely and fluffy and eggy on the inside, just like egglettes in Hong Kong. Juxtaposed with the crust which is caramelized and crunchy. So while the texture had a pleasant juxtapose, the sweetness of the cake + tartness of the sauce also balances out really well. Amazing dish.
+4. Affogato: Unlike American affogatos that has too much ice cream / sweets, this was just right. An expresso with a humble serving of vanilla ice cream. And they serve it iwth a biscotti on the side, along with a little bit of water. Kind of like how they serve turkish coffee in Turkey. Except with ice cream. Quite sweet and satisfying.
+
+Whole thing was around 65 USD. Very filling. Indoors, no wasp. Decent value. 4.5/5.
+
+![Kaiserschmarrn that doesn't suck!](../images/Kaiserschmarrn.jpg)
+
+![Kufstein affogato](../images/kupfstein_affogato.jpg)
+
+After lunch, we went up to a castle to enjoy some views. Going up was through this diagonal lift:
+
+<figure>
+<video controls>
+  <source src="../videos/going_up_fort.mp4" type="video/mp4">
+  Your browser does not support the HTML5 video tag.
+</video>
+    <figcaption>4X speed. This used to be manual and was called the Bavarian machine--it was powered by a big hamster wheel where large freights of ammo and supplies were transported up the castle. An equivalent of a few km of running is done to move a load.</figcaption>
+</figure>
+
+At the top was the king's tower, which was refurb'd to be a prison later on. Compare / contrast the views here:
+
+<figure markdown>   ![Prison v not](images/kufstein_fort.png){ width="600" }
+  <figcaption>The view from a Kufstein prison cell vs regular view.</figcaption>
+</figure>
+
+
+
+This fortress is huge with 20k+ sq meters (or about 200k+ sqft). It was a gift to court one of the OG queens of Tirol.
+
+Once that was done (around 4PM), we went to a local mall to do some shopping. I bought a 8-euro tank top at C&A.
+
+Got back to hotel at around 4:45PM and rested for a bit as it was forecasted to rain.
+
+Then, I worked on this journal entry up until 6PM, and I'll head to dinner soon.
+
+At this point, I feel like we haven't done anything all day and don't feel tired at all. But when I actually write my itinerary above up until 6PM, it's actually quite a lot of stuff we did.
+
+At 6PM, we went down to the bar to claim our free welcome drink. The main draw for the bar is the decor--it is built in a cave. The welcome drinks (gin) were kind of watered down and weak -- fairly bland.
+
+Drinks are overpriced: a shot of Beefeater = 30 euros. So we just did our free drinks and left.
+
+Cave was kind of cool, but pretty gimmicky and not worth the effort of uploading.
+
+I understand businesses wanting high margins, but obvious ripoffs kind of ruin the brand.
+
+After, we walked across the street to an Italian place (L'Incontro Ristorante Pizzeria) and had dinner.
+
+1. Rigatoni pasta with melted mozzarella. Really good. More of a heavy / sweeter take on pomodoro sauce.
+2. Penne with tuna/anchovies/capers. Also really great. More of a sour / savory take on pomodoro. So we had pomodoro 2 ways basically.
+3. Salmon pizza with rockets (arugula) and burrata. Owner's son / waiter (this is a family business) offered homemade spicy sauce which we gladly put on the pizza. Again, really good. Crust is a bit doughy but the cheese and salmon flavor was on point. The spicy sauce wasn't really spicy--it was more of a fermented bean paste with a hint of sauce. Sauce is great; like something you'd put in a sauce on the side when you do hot pot. With this already-savory pizza might be a bit too much.
+4. Homemade apple cake. They call it cake but it is more of a crumbly pie. I know Serena really likes the homemade style Italian cake, which we've only had once in Lake Como back in 2021 trip to Italy. And I thought this would be the place to try and see if they did it in the same style. Being a family restaurant, they did! Serena liked it. I also really liked it. It's flavorful but not too sweet.
+
+![Kufstein Pizza](../images/kufstein_za.jpg)
+
+![Homemade apple pie](../images/kufstein_pie.jpg)
+
+Serena liked the pie so much by the time I took a picture some of it was already eaten.
+
+Pasta 5/5. Pizza 4/5.
+
+**Overall: 4.5/5. Total spend was $67 USD.**
+
+Then we went for a 20 minute stroll just to burn off some carbs and enjoy the small town one last time before we went back to the hotel and turned in.
+
+## Chapter 4: Munich
+
+### Day 10: Munich
+
 ## Lessons
 
-* Execute on good deals / arbitrages immediately. Procrastinating even a few seconds = opportunity gone. The market won't let good opportunities appear for long.
-* As long as the market's good, you can just have a mediocre product. Focus almost all efforts on the market, and just ship a shitty product you improve upon later.
+* Execute on good deals / arbitrages immediately. Procrastinating even a few seconds = opportunity gone. The market won't let good opportunities appear for long. (Uber fiasco)
+* As long as the market's good, you can just have a mediocre product. Focus almost all efforts on the market, and just ship a shitty product you improve upon later. (Mediocre Thai restaurant jam packed)
