@@ -505,7 +505,154 @@ Then we went for a 20 minute stroll just to burn off some carbs and enjoy the sm
 
 ## Chapter 4: Munich
 
-### Day 10: Munich
+### Day 10: Overwhelmingly Underwhelming
+
+Checked out of our Kufstein hotel at around 740AM, and took the 8AM train to Munich, arriving at around 920AM.
+
+Walked to King's Hotel Center, room wasn't ready, so we put our luggages in.
+
+Went to a nearby farmer's market to eat:
+
+* A very long bratwurst
+* Currywurst
+
+The bratwurst just tasted like breakfast sausage, and currywurst sauce was good, but the sausage was cold. Then as we were wrapping up this snack, a wasp came and attacked the food. **2/5.**
+
+Then we went around the luxury street and did a bunch of window shopping, along with some minimal shopping. One thing with Moncler that I find insanely good is that *their service is so good it is really hard to leave.* Some locations have crappy service but that saves me money. But good locations put other luxury brands like Zegna / Loro to shame. To highlight good service:
+
+* They will recommend you similar clothes
+* Give you advice for various pairings
+* Encourage you to try many things and be patient with you
+* Is fine if you don't buy
+
+Of course, this varies from salesperson to salesperson, but in general the best of Moncler salespeople is much better than the best of other luxury brand's salespeople.
+
+We went to get lunch afterwards and ate:
+
+1. Suckling pig with dark beer sauce. Nice, crispy skin. Juicy meat.
+2. Duck, also with dark beer sauce. Nice crispy skin. A little dry, but in general OK.
+3. Sauerkraut -- really good. Had an apple-flavored to it so the sourness of the kraut balanced nicely with it.
+
+Had this at Spatenhaus An Der Oper (Spartan at the Opera). Total cost $88.15.
+
+Sauerkraut was good, and suckling pig is good as well but not the best I've had. Duck was OK--I could do better. Extremely overpriced though. **2/5.**
+
+Walked around some more and did a bunch more window shopping. Then, we we got into Hofbrauhaus Munchen. This is supposed to be a tourist spot and very old / legacy popular.
+
+It's shit.
+
+We sat and waived down various waiters for *30+ mins* and all of them were like "I'm not here." Having enough of shit staff, we just left since we weren't allowed to order anything. **Hofbrauhaus Munchen = 0/5.** Went to another place closeby that's very similar. We had:
+
+1. A light beer, and a dark beer. To my surprise, this just tasted like any other grocery-store beer. Nothing stands out. Super boring.
+2. Pork knuckle, as it's the quintessential Bavarian food. Again, with dark beer sauce. The skin's crispy, but meat's a bit dry.
+3. Kaiserschmarrn. Not the best, not the worst. Crispy on the outside, but not as crispy as the previous entry. Their apple sauce was quite good but the cranberry sauce was too sour and overpowered the pancake. The pancake itself wasn't as eggy as yesterday's entry.
+
+It was OK, and I'd imagine if we had food at Hofbrauhaus, it'd be similar as ratings are similar. **The food is really just OK and not worth a visit. 3/5.**
+
+Then we walked around a department store and finally made our way to Global Blue. The process for tax refund here seems to be much more strict than Italy. You need to go in, have them check your goods, get a stamp, and then *mail* the stamped customs form back in. In Italy, you just scan your passport and you're done.
+
+Made our way back to the hotel to collect our luggage, and it's apparently *self-serve.* There's no service to get your luggage for you, and you are free to steal other people's shit as you like.
+
+One thing I've noticed about Munich is:
+
+1. When you're the customer, they're really sloppy and lazy about service, and simply just don't care in most places.
+2. When you need to collect money, they're extremely anal and meticulous and highly reluctant to give you back what's yours.
+
+In other words, **Munich is an extremely adverserial place.**
+
+Not to mention the food is repetitive and boring. Chainsmokers everywhere.
+
+Such an underwhelming place.
+
+Though I suppose it's good for 3 things:
+
+1. A useful city for us to transfer to get back home.
+2. Get me to 'check off' that I went to Germany, and to save me time in the future as I'd never consider coming back again.
+3. Makes me grateful for good European countries, like Italy and Portugal. I liked those countries before, but now I *really* like them as I never understood how good they were until I witnessed the worst.
+
+Totaled 21,408 steps.
+
+### Day 11: Another 21K Steps Day
+
+Walked to some place called Cafe Joon to eat breakfast. The pictures made the food look edible, so we walked there.
+
+But edible food's in high demand so there was a long line at the door by the time we got there. The waitress came out and basically told us they weren't going to serve anyone and the restaurant's full.
+
+So we quickly went to another place called Cafe Jasmine. There's less people there as the hours on Google are wrong and said they open at 10AM. We got there at 9:50AM. Had:
+
+1. Avocado toast + salad. This is exactly what you'd think it tastes like. We ordered scrambled eggs but they gave us a fried egg instead.
+2. Pesto pasta. There's some arugula and 2 tiny balls of cheese, but if you mix the pasta with it, the arugula wilts. Basically you just end up eating a bunch of bland boiled pasta with hints of pesto.
+3. Tumeric coffee. This was actually good. Not much coffee flavor, just tumeric + milk.
+
+**$40.49 USD. 2/5.**
+
+Then, we went to a museum where on Sundays, tickets is just 1 euro. As there's nothing to do in Munich and it's raining, it go jam-packed after we went in. And by the time we left, there was a long line around the corner of people waiting in the rain to get in.
+
+The exhibits was OK. Big exhibit on Andy Warhol + Keith Herring, the former being the mentor for the latter. Some good art, and you get to see more of a range from Herring's work. From his famous ones all the way back to when he did street art. And then on the other floor of the museum is some American artist named Cy Twombly. I don't really get his art -- it is just scribbles marketed as art. For example, he drew a bunch of roses in scribbles and the marketing for it is that 'nature is really chaotic and so he drew roses this way.' He also had a bunch of paintings derivative of Monet's lilies. Kind of a lazy copycat.
+
+Not sure why this museum's all American artists.
+
+<figure markdown>   ![Alcohol art](images/alcoholics_munich.jpg){ width="600" }
+  <figcaption>Some artwork about how there's an alcoholic culture here.</figcaption>
+</figure>
+
+<figure markdown>   ![Scribbles](images/munich_scribbles.jpg){ width="600" }
+  <figcaption>I drew this exact piece in my notebook when I was 7. My mom threw it out.</figcaption>
+</figure>
+
+But for 1 euro each to get out of the rain, why not.
+
+Then we went to a place to eat noodles, called Pho You. We had:
+
+1. Some beef pho. They were very stingy on the quantity of beef. Like 3 thin slices. And the slices were chewy and tough, so it was not even good quality meat. The broth was almost as good as Costco instant pho noodles' broth!
+2. Peanut tahini noodle. This was good and reminescent of those microwave dinners with thick peanut sauce.
+
+**Cost: $31.78. Solid 3.5/5** as it is almost as good as microwave-able dinners / Costco instant pho noodles.
+
+Munich is great if you:
+
+1. Like the taste of beer and binge drinking beer
+2. Don't care about how food tastes / cannot tell the difference between good and bad food
+3. **...Surf?**
+
+In some park (my app says I took it in Englischer Garten Sud or English Garden), people use the rivers to surf. There are a few spots where surf is constant. People line up and practice surfing in these constant surf zones.
+
+This is great for surf training since you can fall, climb back up, then jump in again immediately to do another rep. On a beach, you need to wait for another surf before you can practice again.
+
+<figure markdown>   ![Surfing in Munich](images/munich_surf.jpg){ width="700" }
+  <figcaption>Note the 'no swimming' and 'death' signs.</figcaption>
+</figure>
+
+After watching people allegedly defy death, we walked to a nearby Biergarten in the English Garden called "Chinese Tower." It looks more like a Japanese Pagoda to me but whatever. It was self-serve and we got:
+
+1. A long red sausage
+2. A currywurst
+3. 1L light beer
+
+I liked that this was self-serve so you don't have to watch staff not do their jobs. Just grab your stuff and go.
+
+Cost: $33.87, you get 2 euros back when you return the 1L giant mug, so **$31.66**. 3/5, it tastes exactly what you think it tastes like. But, you go mostly for the vibe.
+
+And for the Chinese Tower.
+
+<figure markdown>   ![Chinese Tower](images/chinese_tower.jpg){ width="600" }
+  <figcaption>Only non-white there. So I had to consecrate the tower.</figcaption>
+</figure>
+
+Once we were done with the Chinese Tower, we went to another 1-Euro museum. We looked at everything from modern art to cars / evolution of technology. It was pretty good. And we were able to get away from the rain for a bit.
+
+Then, we walked back to the hotel where on the way was Noppakao Thai Imbiss. No clue why this is only a 4.4 on Google whereas other trash is 4.7+. **This is hands-down the best place we ate at in Munich.** We had:
+
+1. Larb (pork). Nice and spicy. Fragrant / aromatic flavors from veggies.
+2. Tom kha with chicken. Coconut milk really comes through and it tastes literally like good soup you'd get in Thailand.
+3. Spring roll. Sweet & spicy sauce really makes this. The rolls themselves were OK.
+4. Pad thai with chicken. Also really great with wok hei and strong fish sauce flavors.
+
+![Thai in Munich](../images/munich_thai.jpg)
+
+**Cost: 29 euro (cash only). 4/5.**
+
+We didn't get dessert as it was a ripoff (mango sticky rice was 9.5 euros). Walked back to the hotel in the rain.
 
 ## Lessons
 
