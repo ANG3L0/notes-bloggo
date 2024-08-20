@@ -654,6 +654,28 @@ Then, we walked back to the hotel where on the way was Noppakao Thai Imbiss. No 
 
 We didn't get dessert as it was a ripoff (mango sticky rice was 9.5 euros). Walked back to the hotel in the rain.
 
+## Epilogue
+
+The tax refund process wasn't as bad as I thought, though much more troublesome than Italy. They did check our goods.
+
+The Lufthansa lounge staff told us to go to the Business lounge, despite our Amex card lets us into the Senator lounge (less crowded, more to eat). After pointing this out to them, they let us in the Senator's lounge where there's a lot of space which is good because flight was delayed for ~2 hours. The breakfast food was mid, but the lunch food had baked chicken which was great.
+
+The coffee sucks though as the cappuccino was 90% milk.
+
+We boarded then plane after a while and it's my first time sitting on the upper deck of the plane.
+
+As some kid speaking German kept kicking my seat even after I told her to stop, I pondered about this trip and concluded that *Germany isn't for me.* Austria is better because it at least has nature and Kufstein which has pretty good (but expensive) food.
+
+Being from US / NY, it is easy to self-deprecate and shit in the places you live in. Especially if you visit Italy where the culture runs deep, and the food is yummy and cheap. Or Japan, where it is much safer and cleaner than NY.
+
+But Germany/Austria, much like Dubai, makes me glad I live in the US instead of those places. Cannot imagine eating a fairly limited diet my whole life, and not having much to do except drink beer. Though accordingly to Serena when I probed her to see if there were worse countries than Germany, she pointed out Switzerland is probably worse as the food sucks just as much there, except way more expensive. Still, my ratings overall:
+
+Germany: 1/5.
+
+Austria: 2.5/5.
+
+Wedding: 5/5.
+
 ## Lessons
 
 * Execute on good deals / arbitrages immediately. Procrastinating even a few seconds = opportunity gone. The market won't let good opportunities appear for long. (Uber fiasco)
