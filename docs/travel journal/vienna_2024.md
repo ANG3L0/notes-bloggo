@@ -14,7 +14,9 @@ For Serena's friend's wedding. And then romantic excursion with Serena.
 
 ## Prologue: Taylor's Tears
 
-EWR->VIE.
+Someone puked on the plane shortly after takeoff. 1 step from the bathroom. Whole flight smelled like cheese. Her mom said it isn't her first time. The obese girl came out of the bathroom with a beaming smile, proud of what she did to everyone else on the plane. Not sure why they didn't use the barf bag on every seat. Probably because it was on purpose and she wanted to puke in high traffic area (i.e. she's an asshole).
+
+Anyway, EWR->VIE.
 
 EWR is a shitshow, as usual. TSA Pre was about 20 minutes.
 
