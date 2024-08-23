@@ -10,7 +10,7 @@ comments: true
 
 This is a 3-day weekend trip traveling to Dallas to visit a good friend of mine while Serena's out on a business trip. July 26-28.
 
-Note: This is written retroactive.
+Note: This is written retroactive. So I am probably forgetting some stuff, like breakfasts.
 
 ## Friday
 
