@@ -197,3 +197,152 @@ After shoving 6 meals down my stomach, I realized I was on a bulk. So we walked 
 
 After dessert 1 was done, we stumbled upon a gelataria and ate a small cup of gelato: 1 scoop nocciola (they called it Ferrero Rocher) and 1 scoop pistaccio. Only **$3.29 USD**, which is cheaper/more generous than my favorite gelato place in the whole world, Giolitti.
 
+About 21K steps.
+
+### Dia Dos: Wow
+
+We slept in until around noon. Walked to Arzak, a local 3-star michelin restaurant. They've had, and held the stars since 1989. This means they've had 3-michelin stars since I've been alive.
+
+We ate their from 1:15PM to around 4PM. It is too much for me to type out all the food so I'll just send pictures:
+
+<figure markdown>![Arzak menu](images/spain24/menu.jpg){ width="600" }
+  <figcaption>Though there were choices for some of them, we just each got the other option so we can try everything.</figcaption>
+</figure>
+
+<figure markdown>![Hybrid butter](images/spain24/arzak/hybrid_butter.JPG){ width="600" }
+  <figcaption>They put 2 flavors of butter in the shape of a walnut. The orange side is more spicy, with paprika, etc. The white side is more savory, done with anchovies! Both sides were great but the white side was more unique.</figcaption>
+</figure>
+
+<figure markdown>![Fried garlic soup](images/spain24/arzak/fried_garlic_soup.JPG){ width="600" }
+  <figcaption>Fried garlic soup. Very light and crispy on the outside. When you bite into it, ultra-umame garlic soup explodes in your mouth. It's like truffle explosion, but garlic instead and a really nice crispy shell instead of a boring ravioli.</figcaption>
+</figure>
+
+<figure markdown>![Fish oma forest](images/spain24/arzak/fish_day_oma_forest.JPG){ width="600" }
+  <figcaption>Fish of the day in oma forest. The fish biscut's head and tail had some paprika sprinkled on one end, and something else on the other. The fish was nicely done as it's served basically sashimi style. Very oily and raw, it's soft meat contrasts with the biscuit nicely. And it being a more fatty-flavored fish, its taste constrasted with the tart sauce on the biscuit very well also.</figcaption>
+</figure>
+
+<figure markdown>![Energetic shrimp](images/spain24/arzak/energetic_shrimp.jpg){ width="600" }
+  <figcaption>Energetic shrimp. The shrimp again was sashimi style, so it was delicious on its own. But the sauce was this, and I quote from my notes, "lemongrassy, buttery, crabby." Basically very lightly seafood-flavored, yet heavy and had complex acidic fragrants. One of my faves.</figcaption>
+</figure>
+
+<figure markdown>![Iham with secrets](images/spain24/arzak/iberico_ham.jpg){ width="600" }
+  <figcaption>Iberico ham with its secrets. The secret is kimchi.</figcaption>
+</figure>
+
+<figure markdown>![Fish of the day](images/spain24/fish_of_day_tomato_string.jpg){ width="600" }
+  <figcaption>Fish of the day. I liked this because the fish was served sashimi style, which made the acidity contrast with it a lot better than if it was cooked. Probably my favorite.</figcaption>
+</figure>
+
+<figure markdown>![Fanny pack holder](images/spain24/fannyback_holder.jpg){ width="600" }
+  <figcaption>They brought out something for me to put my fanny pack, like it was an Hermes or something.</figcaption>
+</figure>
+
+<figure markdown>![Fish cheeks](images/spain24/fish_sea_cheeks.jpg){ width="600" }
+  <figcaption>Hake kokotxas print. The fish print is salt. The meat is fish cheeks. Muy bien.</figcaption>
+</figure>
+
+<figure markdown>![Lobster](images/spain24/arzak/lobster_and_yeast.JPG){ width="600" }
+  <figcaption>Lobster and yeast.</figcaption>
+</figure>
+
+<figure markdown>![Saline fried egg](images/spain24/arzak/fried_egg.jpg){ width="600" }
+  <figcaption>Saline fried egg. Also one of my faves. The poached egg is also lightly fried (left). The biscuit on the right has some sardines and capers. You break the egg, and you're supposed to break the biscuit and mix it all together and eat it. Yum AF.</figcaption>
+</figure>
+
+<figure markdown>![Other fish](images/spain24/fish_sea_other.jpg){ width="600" }
+  <figcaption>Fish according to the sea, option 1: some fish. Option 2 was better.</figcaption>
+</figure>
+
+<figure markdown>![Other fish](images/spain24/arzak/fish_according_2.jpg){ width="600" }
+  <figcaption>Fish according to the sea, option 2: some other fish. With a honey-like glaze and grapefruit. The grapefruit's small bite and slight tartness balanced out the glaze and the fish extremely well.</figcaption>
+</figure>
+
+<figure markdown>![Marine lamb](images/spain24/arzak/lamb.jpg){ width="600" }
+  <figcaption>Marine lamb. The lamb was good, and the sauce was interesting. The spounges were more crunchy and less spoungy. The seaweed was really good, very bouncy and contrasted the lamb sauce quite well.</figcaption>
+</figure>
+
+<figure markdown>![pigeon](images/spain24/arzak/pigeon.jpg){ width="600" }
+  <figcaption>Pigeon with orange delights. The gaminess of the pigeon was just right and very buttery. Balanced well with the slight tartness of the sauce.</figcaption>
+</figure>
+
+<figure markdown>![Acidic moment](images/spain24/acidic_moment.jpg){ width="600" }
+  <figcaption>Acidic moment. Very punchy and they had my favorite ingredients: lemongrass, yuzu, and coriander (cilantro).</figcaption>
+</figure>
+
+<figure markdown>![Apple in bloom](images/spain24/apple_bloom.jpg){ width="600" }
+  <figcaption>Apple in bloom with its cider and saffron.</figcaption>
+</figure>
+
+<figure markdown>![Off menu dessert 1](images/spain24/arzak/off_dessert1.jpg){ width="600" }
+  <figcaption>First off menu dessert. Some ice cream with a caramel base. It was good. Though not as crazy and unique as some of the foods above.</figcaption>
+</figure>
+
+<figure markdown>![Chocolate Molasses](images/spain24/arzak/choco_molass.jpg){ width="600" }
+  <figcaption>Chocolate and molasses bread. The brand was nice and crunchy. The chocolate was nice and sweet.</figcaption>
+</figure>
+
+<figure markdown>![Chocolate Mango](images/spain24/arzak/chocolate_mango.jpg){ width="600" }
+  <figcaption>Off menu dessert 2. This is some chocolatey thing. The brown sauce on top is the membrane of the cocoa plant. The ice cream on the side is spicy mango with orange.</figcaption>
+</figure>
+<figure>
+<video controls>
+  <source src="../images/spain24/arzak/amuse.mov" type="video/mp4">
+  Your browser does not support the HTML5 video tag.
+</video>
+    <figcaption>Amuse bouche. 2 of them were too sweet for me. One of them that looks like a honeycomb is dark chocolate. The nut looking one had coconut and cream inside, which ws really good. And the green one in the middle exploded with passionfruit juice as soon as you bite inside.</figcaption>
+</figure>
+
+
+**614 euros total for 2 people**. Includes 3 glasses of alcohol. 5/5, this place is called the "cathedral of food" for good reason, it turns out (I feared that it would be just hype).
+
+After, we walked back to the hotel for a little bit and then headed back out to the town.
+
+After a long walk on the ocean front, we went back to the old town for pintxos.
+
+We went back to Casa Urola, and had:
+
+Some cod, in some tomato sauce. It was quite good. Not pictured as we didn't snap a pic.
+
+* <figure markdown>![Steak and potato](images/spain24/arzak/steakpotato.jpg){ width="600" }
+      <figcaption>Steak with potato foam. Cooked rare, which is the correct way to do it. I liked the potato foam because it's a really interesting take on steak + mashed potatos. Really creamy and smooth, and balanced out the more heavy steak well. There was also a sweet pepper to contrast the fatness from the steak.</figcaption>
+    </figure>
+
+    <figure markdown>![Pigeon, again](images/spain24/arzak/pigeon2.jpg){ width="600" }
+      <figcaption>Pigeon with mini-fries. The pigeon is gamey, but in a really buttery sort of way. I'm surprised pigeons can be so fatty and taste so good. Maybe I'll pick some up on the streets when I get back.</figcaption>
+    </figure>
+
+    <figure markdown>![Fois](images/spain24/arzak/fois.jpg){ width="600" }
+      <figcaption>Fois gras and white beans. Fois gras is yummy as always, but the white beans added to it even more. Yesterday's fois was with bread which was really filling. But today's beans seem to help balance out the heavy feeling from the fois. I could just be less jetlagged.</figcaption>
+    </figure>
+
+    <figure markdown>![shrooms](images/spain24/arzak/shrooms.jpg){ width="600" }
+      <figcaption>Porcini mushroom with white sauce and an egg yolk. It was savory, fatty, and the bounciness + fragrant of the mushroom really goes well together.</figcaption>
+    </figure>
+
+Topped with Txokoli (white wine) and a red wine.
+
+**All this for $35.49 USD**. It was a bit crowded, so the vibe was "meh" -- we managed to score a seat with the back facing the street though so it was less stuffy. Still, food is 5/5.
+
+Then we went to a place called the Kapadokia Bar. We had:
+
+<figure markdown>![Orzo](images/spain24/arzak/orzo.jpg){ width="600" }
+  <figcaption>Orzo with iberico ham, in a carbonara sauce.</figcaption>
+</figure>
+
+<figure markdown>![Ravioli](images/spain24/arzak/ravioli.jpg){ width="600" }
+  <figcaption>Prawn ravioli, finished in a pesto sauce.</figcaption>
+</figure>
+
+<figure markdown>![tacos](images/spain24/arzak/tacos.jpg){ width="600" }
+  <figcaption>An oxtail taco with lime, various herbs, and avocado sauce.</figcaption>
+</figure>
+
+**For $24.65 USD**. Really nicely done. I could see all of the above being in a tasting menu. Fairly spacious standing room. 5/5.
+
+Then went back to La Viña and picked up 1 tortilla and 2 portions (4 slices) of basque cheesecake. It was *extremely* crowded so did not want to eat there at all. We found a church and sat on one of the benches outside to eat it to-go. The tortilla was not as good as yesterday, but the cheesecake was amazing.
+
+All this for **only $17.53 USD**. 4.5/5.
+
+To burn off some calories, we walked along the coast for a bit before heading back to the hotel.
+
+Ended up around 16K steps.
