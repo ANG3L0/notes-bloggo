@@ -498,8 +498,10 @@ This hotel's got a kettle, so we got some high-protein yogurt (can't abandon my 
 
 <figure>
 <video controls>
-  <source src="../images/spain24/juiced.MOV type="video/mp4">
+  <source src="../images/spain24/juiced.MOV" type="video/mp4">
   Your browser does not support the HTML5 video tag.
 </video>
     <figcaption>Fresh OJ. Fresh diabetes.</figcaption>
 </figure>
+
+Ended this day with 20K steps.
