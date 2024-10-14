@@ -199,7 +199,7 @@ After dessert 1 was done, we stumbled upon a gelataria and ate a small cup of ge
 
 About 21K steps.
 
-### Dia Dos: Wow
+### Dia Los Dos: Wow
 
 We slept in until around noon. Walked to Arzak, a local 3-star michelin restaurant. They've had, and held the stars since 1989. This means they've had 3-michelin stars since I've been alive.
 
@@ -346,3 +346,160 @@ All this for **only $17.53 USD**. 4.5/5.
 To burn off some calories, we walked along the coast for a bit before heading back to the hotel.
 
 Ended up around 16K steps.
+
+### Dia De La Tres: Roller coaster
+
+We had an appointment at Casa Julian in Tolosa at 1:30PM. So we traveled there by bus. Took about an hour or so.
+
+This is supposed to be the place where Michelin chefs go to eat. So we had high expectations.
+
+<figure markdown>![Casa Julian entry](images/spain24/meat_entry.jpg){ width="600" }
+  <figcaption>At the entrance, we were greeted with preserved meats. Complete with temp and humidity control.</figcaption>
+</figure>
+
+<figure markdown>![Casa Julian beef jerky](images/spain24/jerky.JPG){ width="600" }
+  <figcaption>This preserved beef was yum. Thinly sliced, translucent, very fatty and meaty and savory. By far the best thing I had this day. The flavor was so intense that Serena described it as: "One bite, one steak."</figcaption>
+</figure>
+
+<figure markdown>![Casa Julian asparagus](images/spain24/asparagus.jpg){ width="600" }
+  <figcaption>These asparagus is unlike anything I've ever eaten. 2nd favorite thing of the day. When you cut in it, it's nice and soft like butter. It's very juicy and creamy, yet there's almost a meaty taste to it. Also came with a vinegar sauce + cream sauce. Both were very good to complement the asparagus, but the asparagus by itself is already 5/5 stars.</figcaption>
+</figure>
+
+<figure markdown>![Casa Julian honey pepper](images/spain24/honey_pepper.JPG){ width="600" }
+  <figcaption>This honey pepper was also good. When it came to the table, it had this very in-your-face (but in a good way) sweet pepper + garlic fragrance. When you do eat the pepper, it is very juicy. And the sweetness of it helps balance out the overly salty meat.</figcaption>
+</figure>
+
+<figure markdown>![Casa Julian meat](images/spain24/julian_meat.JPG){ width="600" }
+  <figcaption>Here's their steak. Basically one of the main things they're known for. It was too lean and the overuse of sea salt made it 1) too salty, and 2) hurt my teeth because it was like biting on rocks. I am disappoint.</figcaption>
+</figure>
+
+<figure markdown>![Casa Julian dessert](images/spain24/julian_dessert.JPG){ width="600" }
+  <figcaption>For dessert we had a cheesecake and some pastries. Pastries were OK, but the cheesecake really shines. Sweet, but also a little salty from the cheese. Very creamy and soft, and melts in your mouth. Very good.</figcaption>
+</figure>
+
+Overall, we spent **203 euro**, includes:
+
+1) 2 glass red wines (6 euros each)
+2) 1 pour of laphroig on the ice (7 euros only)
+
+Also.
+
+My rating is 3.5/5. The sides were stellar, but I feel the need to deduct it 1.5 points because their main course and what they're known for was really subpar. Many in their Google reviews complain about their service and their price--though I thought their service was great and their price was reasonable.
+
+I wouldn't go out of my way to go again, but if it was some place convenient, I'd go again and only order sides and cheap booze.
+
+#### Amusement
+
+We then took a bus back to San Sebastian, where there's an *amusement park.* You get to the amusement park via fuicular and the view at the top is spectacular.
+
+You get to enjoy the view even further by taking a mini roller coaster in the park, where it'll loop you around 360 and show you the surrounding waters/ships, while having some steep drops.
+<figure>
+<video controls>
+  <source src="../images/spain24/fast_roller.mov" type="video/mp4">
+  Your browser does not support the HTML5 video tag.
+</video>
+    <figcaption>6X speed.</figcaption>
+</figure>
+We walked around and then enjoyed the view a bit more. Afterwards, there was another ride that lets you enjoy the views. This was a slower, more chill, water ride.
+
+<figure>
+<video controls>
+  <source src="../images/spain24/water_roller.mov" type="video/mp4">
+  Your browser does not support the HTML5 video tag.
+</video>
+    <figcaption>I don't know why there's a Peter Pan with a nude woman next to him in the ride.</figcaption>
+</figure>
+
+Going up the funicular was 9 euros (4.5 pp), roller coaster was 6 euros (3pp), and the water ride was 4.6 euros (2.3 pp).
+
+#### Meh.
+
+Went back to town. Tried to eat at various pintxos bars but ran into the typical Spain situation which is food took forever to come out, and the bartenders were rude.
+
+There is one place that always does it right though, despite being packed all the time, and that's La Viña. Despite the crowds, ordering was easy and we scored this meal as one of our final meals:
+
+<figure markdown>![La Vina](images/spain24/last_vina.jpg){ width="600" }
+  <figcaption>Our haul for the night. Very affordable.</figcaption>
+</figure>
+
+All this **16-17 euros**. 5/5 per usual.
+
+We ate other things this night but was not memorable, so will not talk about it.
+
+## Madrid
+
+### Dia De Los La Quatro: The Oldest Restaurant In The World
+
+As there's no direct flights back to JFK from San Sebastian, we wanted to start heading towards Madrid to take MAD->JFK a couple days from now. Took a 5 hour train from San Sebastian back to Madrid.
+
+Train was late by around 25 minutes, and we arrived at 2:15PM instead of 1:50PM.
+
+Went to, and checked in to hotel at 3PM, and headed to Botin, arrived at 3:20PM.
+
+Botin *is the oldest restaurant in the world,* started in 1725. From wikipedia:
+
+> Apart from using the original recipes, the restaurant has also kept the flame burning in the oven continuously, never to be extinguished.
+
+This means the flame to roast the suckling pig I'm about to show you has ***been burning for 299 years as of this writing!*** Here's the 299-year flame:
+
+<figure>
+<video controls>
+  <source src="../images/spain24/eternal_fire.MOV" type="video/mp4">
+  Your browser does not support the HTML5 video tag.
+</video>
+    <figcaption>299-year (and counting) flame.</figcaption>
+</figure>
+
+<figure markdown>![Cave stairway](images/spain24/cavern.jpg){ width="600" }
+  <figcaption>When we went in, you go down some stairs to a cavern where all the dining tables are. That's probably how it was 300 years ago, no modern decorations. Just caves.
+</figcaption>
+</figure>
+
+<figure markdown>![Old ass wine bottles](images/spain24/old_bottles.jpg){ width="600" }
+  <figcaption>While waiting for food, I went down to the cellar. These bottles are 100s of years old. You can see the rust on them. Kind of spooky; like traveling back in time or discovering the remains of the titanic or something.
+</figcaption>
+</figure>
+
+<figure markdown>![Crispy blood sausage](images/spain24/blood_sausage.JPG){ width="600" }
+  <figcaption>Many blood sausage are too salty/gamey. Not this one. Nice and crispy on the outside. Soft on the inside, with a nice and strong nutmeg and cumin fragrance. Best blood sausage I've ever had, easily.
+</figcaption>
+</figure>
+
+<figure markdown>![Artichokes](images/spain24/artichokes.JPG){ width="600" }
+  <figcaption>These artichokes were served with the blood sausage and a really nice way to balance the sausages out, as well as the heavy meal coming our way.
+</figcaption>
+</figure>
+
+<figure markdown>![Artichokes](images/spain24/asparagus_cream.jpg){ width="600" }
+  <figcaption>Like yesterday, we had white asparagus with "mayo" (it says mayo on the menu by I think it is beschemel). Served alongside the suckling pig.
+</figcaption>
+</figure>
+
+<figure markdown>![Artichokes](images/spain24/suckling_pig.jpg){ width="600" }
+  <figcaption>Botin's famous for their suckling pig. Heavy and rich fat flavors, with a crispy skin like potato chips. The meat is moist and juicy. Really excellent in every way you'd expect from a perfectly cooked roast suckling.
+</figcaption>
+</figure>
+
+<figure markdown>![Artichokes](images/spain24/bday_boy.JPG){ width="600" }
+  <figcaption>We ordered dessert, and one of the desserts came with 3 candles for my birthday (Serena put a note down that it was my birthday). This dessert was the cheesecake, and it was really good. Cheese was nice and runny, slightly sweeter than yesterday's cheesecake but still got that savory-cheesy taste to it.
+</figcaption>
+</figure>
+
+<figure markdown>![Artichokes](images/spain24/desserts.jpg){ width="600" }
+  <figcaption>The other 2 desserts were the Botin cake and the rice pudding. The Botin cake's got meringue, and is a sweet, moist spongecake. The rice pudding is less of a pudding, but more of a sweet-rice soup. Both were done quite well, though my favorite is still the runny cheesecake. 
+</figcaption>
+</figure>
+
+I honestly think the desserts in Spain surpasses Italian desserts. Probably because I really like their take on cheesecakes here, which are more runny/melted in nature, as opposed to the dense style you see a lot in the US.
+
+After Botin, we just walked around a lot. From 5PM to around 9PM. We just did some window shopping, and then did some small grocery shopping.
+
+This hotel's got a kettle, so we got some high-protein yogurt (can't abandon my gains!) and instant ramen. We also got some fresh-squeezed orange juice as is tradition if you visit Portugal or Spain:
+
+<figure>
+<video controls>
+  <source src="../images/spain24/juiced.MOV type="video/mp4">
+  Your browser does not support the HTML5 video tag.
+</video>
+    <figcaption>Fresh OJ. Fresh diabetes.</figcaption>
+</figure>
