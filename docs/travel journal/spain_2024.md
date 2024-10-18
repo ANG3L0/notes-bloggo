@@ -724,7 +724,7 @@ On the way out, Serena wanted to take a photo of their famous snail in their bro
 
 <figure>
 <video controls>
-  <source src="../images/spain24/amadeo.mov" type="video/mp4">
+  <source src="../images/spain24/bday/amadeo.MOV" type="video/mp4">
   Your browser does not support the HTML5 video tag.
 </video>
     <figcaption>Yummy snails in their broth.</figcaption>
