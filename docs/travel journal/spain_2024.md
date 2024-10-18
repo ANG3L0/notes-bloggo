@@ -6,6 +6,8 @@ comments: true
 
 # Spain 2024
 
+**NOTE: this page will take a while to load as there is a few hundred MB of food pics and videos.**
+
 ## Overview
 
 Serena had a business trip in Malaga, so I met her in San Sebastian to eat. 
@@ -201,6 +203,8 @@ About 21K steps.
 
 ### Dia Los Dos: Wow
 
+#### Arzak
+
 We slept in until around noon. Walked to Arzak, a local 3-star michelin restaurant. They've had, and held the stars since 1989. This means they've had 3-michelin stars since I've been alive.
 
 We ate their from 1:15PM to around 4PM. It is too much for me to type out all the food so I'll just send pictures:
@@ -299,6 +303,8 @@ After, we walked back to the hotel for a little bit and then headed back out to 
 
 After a long walk on the ocean front, we went back to the old town for pintxos.
 
+#### Pintxos
+
 We went back to Casa Urola, and had:
 
 Some cod, in some tomato sauce. It was quite good. Not pictured as we didn't snap a pic.
@@ -348,6 +354,8 @@ To burn off some calories, we walked along the coast for a bit before heading ba
 Ended up around 16K steps.
 
 ### Dia De La Tres: Roller coaster
+
+#### Casa Julian
 
 We had an appointment at Casa Julian in Tolosa at 1:30PM. So we traveled there by bus. Took about an hour or so.
 
@@ -489,8 +497,9 @@ This means the flame to roast the suckling pig I'm about to show you has ***been
   <figcaption>The other 2 desserts were the Botin cake and the rice pudding. The Botin cake's got meringue, and is a sweet, moist spongecake. The rice pudding is less of a pudding, but more of a sweet-rice soup. Both were done quite well, though my favorite is still the runny cheesecake. 
 </figcaption>
 </figure>
-
 I honestly think the desserts in Spain surpasses Italian desserts. Probably because I really like their take on cheesecakes here, which are more runny/melted in nature, as opposed to the dense style you see a lot in the US.
+
+My rating is 4.5/5. The food was perfect, but I deduct a full point because Serena told me that 10 years ago it used to be 1) a lot less crowded, and 2) a lot cheaper. And even from YouTube videos 2 years ago, their prices are now 25%-33% higher. Seems kind of cunty to raise prices so drastically in such a short amount of time, but I definitely understand the reasoning behind it. They earn most of the points back though because they remembered my birthday, and they didn't charge us for the cheesecake.
 
 After Botin, we just walked around a lot. From 5PM to around 9PM. We just did some window shopping, and then did some small grocery shopping.
 
@@ -505,3 +514,291 @@ This hotel's got a kettle, so we got some high-protein yogurt (can't abandon my 
 </figure>
 
 Ended this day with 20K steps.
+
+### Cinco De Dia: One of the happiest birthdays. And #4 restaurant in the world.
+
+#### Pre-party
+
+As of writing, Diverxo is the ***4th best restaurant in the world.*** We had an appointment there at 1PM.
+
+But first, we went to a place called *El Riojano*, where they had a delicious cream, chocolate pastry, and they're known for their melted hot chocolate. Instead of using cocoa powder, they melt nuggets of chocolate. A YouTube video I watched suggested to dip ladyfingers into the hot chocolate. I just drank it. 
+
+For $7.33, it's a really nice, quick snack. 5/5.
+
+After, we went to a place to get *nun cookies* at Monasterio del Corpus Christi. The process of getting it is fairly funny. They give you cookies through a lazy susan, you give them cash.
+
+They were out of most of the cookies; we got the lemon flavor. It was OK. But **0.5 kg of cookies for 13 euros was a bit expensive. 2/5.** Fun for the gimmick; probably just go and watch other people buy it. Oh wait, you can do it for free with the video below:
+
+<figure>
+<video controls>
+  <source src="../images/spain24/bday/nun.mov" type="video/mp4">
+  Your browser does not support the HTML5 video tag.
+</video>
+    <figcaption>Nun cookies. Cookies a bit too hard for my taste.</figcaption>
+</figure>
+
+#### DiverXO
+
+It had kind of a light rain, and so we started walking over to Diverxo. Once we arrived, it was spectacular. Here's the whole experience in pictures and videos:
+
+<figure markdown>![DiverXO decor](images/spain24/bday/decor1.jpg){ width="600" }
+  <figcaption>Entryway decor. Theme is flying pigs and a lot of statues of the chef.
+</figcaption>
+</figure>
+
+<figure markdown>![More DiverXO decor](images/spain24/bday/decor2.jpg){ width="600" }
+  <figcaption>Coat check. Another thing of the chef. Michelin man with chef's signature mohawk, with a "three" sign for 3 michelin stars.
+</figcaption>
+</figure>
+
+<figure>
+<video controls>
+  <source src="../images/spain24/bday/decor.MOV" type="video/mp4">
+  Your browser does not support the HTML5 video tag.
+</video>
+    <figcaption>Really interesting decor going in. The butterfly + books theme extends throughout, into the restroom.</figcaption>
+</figure>
+
+<figure markdown>![DiverXO welcome](images/spain24/bday/table_welcome.jpg){ width="600" }
+  <figcaption>As soon as I sat down, I was welcomed with a 'Happy Birthday' sign that Serena prepared for me. Wow!
+</figcaption>
+</figure>
+
+A note on the courses. Most courses have either an elaborate drawing, or a postcard describing the ingredients. The only ones that do not are surprise courses.
+
+<figure markdown>![First course.](images/spain24/bday/course1.jpg){ width="600" }
+  <figcaption>Course 1 was various seafood served in sashimi style. For more details, zoom in.
+</figcaption>
+</figure>
+
+<figure>
+<video controls>
+  <source src="../images/spain24/bday/course2.MOV" type="video/mp4">
+  Your browser does not support the HTML5 video tag.
+</video>
+    <figcaption>2nd course was like a cockles ceviche. With thai flavorings, so creamy coconut-y, spicy sauce. This balances out nicely with the ceviche. The best surprise? Corn nuts inside. Gave a great crunchy textural juxtapose + saltiness to balance.</figcaption>
+</figure>
+
+<figure markdown>![3rd course.](images/spain24/bday/course3a.jpg){ width="600" }
+  <figcaption>Course 3, part 1. Some thai foamy soup inside kohlrabi. Spoon on right was some fish cheek one-biter.
+</figcaption>
+</figure>
+
+<figure markdown>![3rd course, part 2.](images/spain24/bday/course3b.jpg){ width="600" }
+  <figcaption>3rd course, part 2. Coconuty, thai flavor with flowers.
+</figcaption>
+</figure>
+
+<figure>
+<video controls>
+  <source src="../images/spain24/bday/course4.MOV" type="video/mp4">
+  Your browser does not support the HTML5 video tag.
+</video>
+    <figcaption>4th course. Crab marinated Chinese style. And then a mixture of ingredients in crab shell. Zhenjiang jelly, kimchi ice cream, fermented crab, marinated ginger, crab gel with coral powder. On top are strawberries with flower for bites. Many things going on. The crab + strawberry was great. The kimchi ice cream was too overpowering.</figcaption>
+</figure>
+
+<figure>
+<video controls>
+  <source src="../images/spain24/bday/course5.MOV" type="video/mp4">
+  Your browser does not support the HTML5 video tag.
+</video>
+    <figcaption>5th course. Some fish with a spicy honey sauce. The parmesan-based chili sauce on the bottom was really great, especially when dipped with the rice paper.</figcaption>
+</figure>
+
+<figure markdown>![6th course at DiverXO.](images/spain24/bday/course6.jpg){ width="600" }
+  <figcaption>Course 6. Peas with farmed caviar (sturgeon, so real). In 2 sauces: pastachio + jalapeno, and macadamia nut/coconut/horseradish. The crunchiness/lightness of the peas contrasted perfectly with the creamy, iberian-ham fat enhanced, savory taste of the caviar. The macadmia sauce was nice and creamy and paired well with this dish. The Pistachio one was too powerful for this dish, especially since we already have iberian-ham fat glazed caviar to do the savory heavy lifting.
+</figcaption>
+</figure>
+
+<figure markdown>![7th course.](images/spain24/bday/course7.jpg){ width="600" }
+  <figcaption>Course 7. Sea cucumber innards with a sauce. Tuna tartare hidden at the bottom of the dish. With a bite of potato. The sauce is too overpowering for the delicate tuna tartare, which kind of wastes the tartare. Pairs good with the potato though and then sea cucumber innards though. They should have plated the tartare separately.
+</figcaption>
+</figure>
+
+<figure markdown>![8th course.](images/spain24/bday/course8.jpg){ width="600" }
+  <figcaption>Course 8. Crisply skin from suckling pig with pesto, sriracha, caramel sheet, basil, cheese, rocket, cold cuts inside. They recommended 2 bites, but after the 1st bite everything inside kind of gets squeezed out. This is a one-biter, strictly. The cheese's flavor was overpowering everything else, so you really just taste salty cheese with a nice crispy crunch of the skin. The cheese kind of ruined the dish and wasted all the other ingredients as I could not taste anything other than the cheese.
+</figcaption>
+</figure>
+
+<figure markdown>![9th DiverXO course.](images/spain24/bday/course9.jpg){ width="600" }
+  <figcaption>Course 9. Barnacles with 2 sauces. They used a curry thai sauce, again. Tastes good but this flavor has already been in almost half the courses at this point. The taco on the side with flowers and fried-something + egg yolk was delicious. The egg yolk explodes in your mouth, and the creaminess of it contrasts with the crunchiness of the taco and the delicate flowers nicely.
+</figcaption>
+</figure>
+
+<figure markdown>![10th DiverXO course.](images/spain24/bday/course10.jpg){ width="600" }
+  <figcaption>Course 10. Chicken thigh with baby eels + sauce. Plus a chicken feet one-biter. The one-biter is delicious. Crispy chip + soft/tender chicken feet. Very nice. The baby eels had a nice bounciness to it, and the ravioli was great too. The chicken thigh was a little dry. The sauce is just a standard hot + sour sauce, with collagen.
+</figcaption>
+</figure>
+
+<figure>
+<video controls>
+  <source src="../images/spain24/bday/course11.MOV" type="video/mp4">
+  Your browser does not support the HTML5 video tag.
+</video>
+    <figcaption>11th DiverXO course. Bone marrow one-biter. And hot+sour soup in a horn. The latter was OK, like any Chinese soup. The one-biter is one of my favorite things though. Crispy on the outside, but when you bite into it, bone marrow explodes in your mouth. Similar to black truffle explosion in Alinea, except bone marrow instead of truffle, and a really delicate + crispy shell instead of a boring ravioli.</figcaption>
+</figure>
+
+<figure>
+<video controls>
+  <source src="../images/spain24/bday/course12a.MOV" type="video/mp4">
+  Your browser does not support the HTML5 video tag.
+</video>
+    <figcaption>12th course, part 1. Lobster with various sauces and beet. At 12 o'clock is lobster gel with vindalo curry. Lobster cooked perfectly. Tomato sauce had a really nice balance. And the beet gave good textural contrast. Drinking the juice from the lobster head was also a great finisher. If you notice in the picture, there's a Dali elephant not in the video.</figcaption>
+</figure>
+
+<figure markdown>![12th DiverXO course, part 2.](images/spain24/bday/course12b.jpg){ width="600" }
+  <figcaption>Course 12, part 2. Lobster claw meat on a pani puri (thin shell), with salmorejo (tomato soup) inside. Served on top of a very tall elephant. Similar to the bone marrow one-biter, this one explodes soup in your mouth. Though the soup overpowers the delicate lobster on the top, so you can't taste the lobster, but only feel its texture.
+</figcaption>
+</figure>
+
+<figure>
+<video controls>
+  <source src="../images/spain24/bday/course13.mov" type="video/mp4">
+  Your browser does not support the HTML5 video tag.
+</video>
+    <figcaption>13th course. Final savory course. A bunch of caramelized stuff as sauce with veggies, topped with truffle. 12 o'clock is pizza dough that's been steam, fried, and toasted. To be used to mop up sauce. The sauce was savory to the point where you don't really taste the vegetables or anything else. The pizza's texture is really good, and the sauce they had on it by itself was better than the overdone sauce they had in the pan.</figcaption>
+</figure>
+
+<figure markdown>![14th DiverXO course.](images/spain24/bday/course14.jpg){ width="600" }
+  <figcaption>Course 14. Probably one of my faves, again. Sour greek yogurt (white cream) with cured egg yolk (both underneath the cream and the dots on the left), and chocolate contrasts (the sponge looking thing on the right). The chocolate is not too sweet, and while it looks like a sponge, is actually airy and crunchy. Yet, when you touch it with your tongue, it melts. The mild sweetness is contrasted with the mildly salty, cheesy, sour yogurt + cured egg yolk. And the sauce helps enhance the whole dish a little bit too.
+</figcaption>
+</figure>
+
+<figure markdown>![15th DiverXO course.](images/spain24/bday/course15.jpg){ width="600" }
+  <figcaption>Course 15. Black garlic (little shells on top) with blackcurrant/liquorice (purple sphere), coconut ash yuzu ice cream. With coconut cream. This is one of the most insanely delicious desserts. The black garlic is airy, yet dissolves in your mouth like space food does. You can see the purple sphere in the photo has some juice that has exploded out. Tastes like liquorice/blackcurrent bubble gum. A nice, sweet, herby flavor. Contrasted with the light coconut cream and the delicate yuzu ice cream. Insane.
+</figcaption>
+</figure>
+
+<figure>
+<video controls>
+  <source src="../images/spain24/bday/course16.MOV" type="video/mp4">
+  Your browser does not support the HTML5 video tag.
+</video>
+    <figcaption>16th and final course (petit four). Various mochis and desserts. Of note is the 2nd hat filmed which is a brand new dessert they're serving for the very service. It is a sweet corn + vanilla core, braded with corn nuts and tangerine cream and Thai chili. With crispy popcorn. All the petit fours were really excellent. None of them were boring, and all of them had a nice balance of "sweet-but-not-too-sweet" and the textures were really nice on each.</figcaption>
+</figure>
+
+
+
+<figure markdown>![Surprise Cake at DiverXO](images/spain24/bday/surprise_cake.JPG){ width="600" }
+  <figcaption>During petit four, they brought out a huge (non-edible) cake for us to take a photo. Though it is a novelty cake, it's got a candle that they lit so I can make a birthday wish. Underneath the top layer actually, they were hiding a real, secret cake. He took the top cake off to reveal the actual final, hidden course.
+</figcaption>
+</figure>
+
+<figure markdown>![Surprise Cake at DiverXO](images/spain24/bday/hidden_cake.JPG){ width="600" }
+  <figcaption>The hidden cake is a lip-shaped raspberry cake. With flower decorations. Even though a 'surprise,' this didn't feel like an afterthought and was actually extremely delicious. The bottom third is a mild, yet harder/crunchy chocolate inside the cake. Even their surprise cake is complex in flavor, and not just sweet for the sake of being sweet.
+</figcaption>
+</figure>
+
+**Drinks + 2 person meal = $54.69 + $981.81 = $1036.5 total.**
+
+This is expensive, even for 3-star michelin standards. But how's it fare? I think it's a 5/5 despite my many critical complaints about their mains. While not perfect, the food's generally good and the service is stellar.
+
+**To compare against Arzak:** I'd say Arzak is less "wild" in terms of presentation so it is less of an "experience." Taste-wise, Arzak's main are much better executed, and much more well balanced. DiverXO's main are hit or miss. When they miss, the dish just tastes of a salty flavor, indicative that they did too much.  It still tastes "not bad"--but when the meal's more than $500 per-person, "not bad" isn't what we're going for here. And DiverXO's failed mains remind me of whenever I try to do "too much"--spend an extra 40 minutes on a dish or an extra 3 weeks on a feature, only for it to come out disappointing. That said, Arzak's desserts were really mediocre in the same way, and DiverXO's desserts is probably the best that's ever done it.
+
+While service at Arzak was great, the service at DiverXO was still significantly better.
+
+Though neither ever noticed I was left handed and ever put the utencils on the correct side, like Benu did.
+
+I'd say DiverXO is definitely worth going for the experience and the dessert, but Arzak's mains are better in general.
+
+If I had infinite money, I'd visit Arzak frequently, but probably go to DiverXO once for the worthwhile experience.
+
+We saw Mark Wien's video on DiverXO a while back and thought it would be extremely filling. While I was satisfied, I was not hunched-over full. So we went back to town for some tapas.
+
+#### Post-party
+
+If you do your research on Spanish tapas in Madrid on YouTube, Casa Amadeo shows up a lot. It's generally this 90+ year old dude that loves the food he puts out and they're famous for their snails.
+
+<figure markdown>![Casa Amadeo](images/spain24/bday/amadeo.jpg){ width="600" }
+  <figcaption>Snails in a savory sauce, tripe (not pictured), and fresh tortilla.
+</figcaption>
+</figure>
+
+The snails were amazing. Nice and bouncy, which went well with the savory, yet buttery sauce. The tortilla was *fresh-made* and was runny in the middle. Chased with yummy sweet peppers. They also gave us some soft bread, which is nice as a lot of times they give you hard bread which is harder to use to mop up sauces.
+
+I also had a vermouth for like 2.5 euros. It was mildly sweet and was great to sip between heavy bites.
+
+**All for $35.22, 5/5.**
+
+On the way out, Serena wanted to take a photo of their famous snail in their broth. The waitress was really kind and asked Serena for her phone. Helped her take a photo from behind the counter and a video of her mixing the snails in the broth. All unsolicited:
+
+<figure>
+<video controls>
+  <source src="../images/spain24/amadeo.mov" type="video/mp4">
+  Your browser does not support the HTML5 video tag.
+</video>
+    <figcaption>Yummy snails in their broth.</figcaption>
+</figure>
+
+Still not quite full, we went to San Miguel market. Serena said she had a mojito there once that was very intense; I tried to get it too, but they ran out. Instead, we got these fish-based tapas at only 1-1.5 euro per pop. In total, all of the below's less than 15 euros.
+
+<figure markdown>![Casa Amadeo](images/spain24/bday/san_miguel.jpg){ width="600" }
+  <figcaption>Salmon, honey + fish, cod liver, and other tapas.
+</figcaption>
+</figure>
+
+All of it was really nice, as the fish toppings were generally nice, soft, savory. Whereas the bread underneath it was crispy which had a great contrast. The main highlights for me was the honey and the cod liver though. They say San Miguel is very expensive and a tourist trap, but this one is actually quite fairly priced and the quality was amazing. **All for $12.58. 5/5.**
+
+All in all, this was one of my happiest birthdays, if not the happiest. I feel very fortunate to have Serena who helped planned not only this day of great eating, but this entire trip. Best of all is being able to share these unique and unforgettable memories with her together while we're still young.
+
+## Conclusion: Iberia Sucks
+
+#### Breakfast
+
+The next day, we woke up at around 11AM and grabbed lunch at a Chinese place before we left for the airport.
+
+Last year, before we left Italy, we also ate [Chinese food as our last meal](/travel%20journal/italy_2023/#day-12-rome). Perhaps getting tired of local foods and just wanting to eat Chinese food at the end is becoming a tradition for us. Anyway, we went to a place called Mama Dumplings:
+
+<figure markdown>![Casa Amadeo](images/spain24/bday/depart_chinese.jpg){ width="600" }
+  <figcaption>Noodles with shrimp and dumpling soup.
+</figcaption>
+</figure>
+
+We also had steamed dumplings.
+
+The shrimp was nice and soft, and everything else was OK. The steamed dumplings, while freshly wrapped, was over-seasoned and the wrap was too sticky and thick.
+
+Not that expensive at all considering we ordered 4 things, **at $30.02. Tastewise, 3/5.**
+
+Taxi to airport was 33 euros, which isn't bad considering it was a 40 minute ride.
+
+#### Iberia
+
+Iberia changed our seats last minute, separating me and Serena. Serena went from a window seat to an aisle seat, and I went from aisle to a middle seat (in a 2-4-2 configuration, we had a "2", now I'm a middle in a "4").
+
+At the counter, they basically told us to fuck off.
+
+Luckily, when we boarded, the nice lady that was supposed to sit next to me swapped with Serena (which is an easy enough trade as she just went from one aisle to another aisle, that's one row behind).
+
+During the flight:
+
+* The person in front of me reclined their seat way back, which is fine.
+* So I reclined my seat way back, only for a Spanish couple behind me to tell me to recline it forward. I nicely was reclining it forward but they kept hurrying me up to recline it forward, so I stopped and gave them some words. And then reclined my seat all the way back.
+* Meanwhile the dude on my right side kept eating and had his crumbs keep falling on my lap and his blanket spilling over into my space, and took his shoes off and had them behind my feet instead of in his own space.
+
+Attacked from 3 out of the 4 sides, I now understand why some people just snap.
+
+#### Spain is OK
+
+Northern Spain is less crowded and a bit more peaceful. Big cities are crowded and not as fun, since food can take forever. Though even in San Sebastian, in crowded pinxtos, places, it is frustrating to waste an hour waiting for 3 small plates. In general, the mantra in Europe is more hedonistic and the mentality is "go slow, enjoy life."
+
+As a result, there's a lot of smoking in the streets which I don't like. And there is a heavy drinking culture, which is also something I've grown out of.
+
+Is waiting too long worth the great food? In my opinion, no. I think the strategy in Spain is just to eat earlier, and as soon as the crowds come, just go to places with fewer people.
+
+Kind of like how you'd strategize going on all rides in an amusement park. Go early and hit the most popular rides when not many are around, and then line up for the less popular rides once the crowd rolls in.
+
+That said, it is kind of annoying to deal with some tapas places though. I don't mind their "burly" service which is more brusque and has no "please" and "thank yous." I do mind waiting a long time for a plate of food and incompetence. Which does happen if you go to more popular tapas places.
+
+There are of course, reverse outliers. Like in Casa Amadeo the service is so amazing that I was actually shocked.
+
+Though I don't think one should plan a trip based on the off-chance that you'll run into amazing service, but instead should base it on expected experiences.
+
+So, it's nice to go a few times over the course of a lifetime to experience the food, but not a really good place to frequent compared to most other European countries.
+
+## Lessons learned
+
+* **Simple is better, and less is more**. DiverXO adding too much to some of their mains degraded their quality, not improved it. They could have done a lot better if they just separated out the very savory sauces as another dish, or deleted it, period. Likewise, any feature or business venture I go into, I should seek to pursue the minimum thing and have it go to market. It's tempting to thing "adding" will make a product better, even if slightly. But in most cases, it just makes it worse--if not harder to maintain, it makes UI more confusing and increases friction.
+* **Bad experiences in economy classes is a good motivator for me to get more money.**
+    * I really should take a picture of me, being pissed off in economy, frame it, and the hang it in front of my workstation as a daily motivator.
+* **Spain is OK.** The logistics can be kind of annoying and not tourist friendly, but if you strategize it properly, you can have a great trip. Not worth going frequently though. And not my favorite European country.
