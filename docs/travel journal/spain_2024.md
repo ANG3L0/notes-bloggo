@@ -730,6 +730,7 @@ On the way out, Serena wanted to take a photo of their famous snail in their bro
     <figcaption>Yummy snails in their broth.</figcaption>
 </figure>
 
+
 Still not quite full, we went to San Miguel market. Serena said she had a mojito there once that was very intense; I tried to get it too, but they ran out. Instead, we got these fish-based tapas at only 1-1.5 euro per pop. In total, all of the below's less than 15 euros.
 
 <figure markdown>![Casa Amadeo](images/spain24/bday/san_miguel.jpg){ width="600" }
