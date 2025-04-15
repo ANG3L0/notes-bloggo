@@ -4,7 +4,7 @@ comments: true
 
 
 
-# Dubai + Abu Dhabi 2024
+# 2024 Dubai + Abu Dhabi
 
 ## Overview
 
