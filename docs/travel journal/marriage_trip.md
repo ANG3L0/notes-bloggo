@@ -197,6 +197,10 @@ We literally danced and danced, until more and more people left, as they do.
 
 But unlike most wedding dances where it lasts for maybe 30-90 mins, many stayed until 11:30PM/12AM. One of the main things that helped was the weather. It was more chilly so it enabled people to dance more as their generated heat offsets the cold. Whereas a summer wedding, you'd usually see folks almost pass out after 20 minutes of intense dancing. It was kind of interesting because as Serena's sister and cousin danced, you can see that they got progressively more drunk and would hug and mutter "I love you"s to you. It was strange but flattering. 
 
+I got super drunk and bumped into one of Serena's friends and got red wine all over my suit. While the suit is expensive, it kind of doesn't matter because I realize my suit is never really going to be worn again (I work remote, and even if I don't, I'm in tech so the only time I wear suits is at people's wedding and I have other, higher quality, suits already).
+
+Later on, one of Serena's friends picked the Gulu Gulu theme (Hong Kong cartoon from way long ago)--it is one of my favorite childhood cartoons so I danced the shit out of it.
+
 I guess I'm a good dancer because I got compliments about how I'm the best dancer from:
 
 * Our wedding planner's assistant
