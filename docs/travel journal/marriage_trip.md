@@ -223,3 +223,191 @@ At the end, the sole survivors were just Serena and I dancing like we're on ecst
 Overall, I'm very happy and one of my friends told me it's the best wedding she ever went to. And it seems like everyone had a great time without any drama. The food was good and booze was abundant.
 
 This is the best day of my life and I hope I don't forget a single moment of it. Though it'll be hard as I've had a lot to drink.
+
+### April 20: Cooking Class
+
+On this day, we had breakfast at the villa. A few chefs came and basically laid out a huge spread of gabagool, coffee, milk, juices, cheeses, smooth scrambled eggs, croissants, and more for us. They also made eggs/omelettes to order. So basically private chefs for breakfast. Really good. Obvious 5/5 because *private chefs for breakfast.* We ate until around 12:30PM. This is good because we woke up late as I finished journaling last night's entry at 3AM.
+
+After breakfast, we just chilled and did a cooking class from 3PM to 5PM. I thought the cooking class was a "mid" 2/5 because the instructions were mostly in Italian and weren't very clear. The chef would have us make dough but didn't really explain how to incorporate the egg with flour, so the egg spilled everywhere. They kept telling us to roll and flatten out the dough, but with no real standardized way to do it, no pasta maker provided like in other cooking classes, so everyone made varying thickness of pasta (and their QC was not good enough to detect major differences, because it's unlikely the chefs use rolling pins manually to roll out pasta). Each table is taught a completely different technique.
+
+But while Serena and I thought it was mid, other guests seemed to like it and thought it was fun.
+
+Anyway, we eat our own cooking at around 6:30PM and it was terrible--the raviolis we made had dough that was way too thick and so it was quite gross.
+
+The great thing about Serena is her foresight--she already calculated the possibility that we would hate the food we made and so she ordered a light dinner buffet anyways as backup. As a result, we were all able to eat until we were stuffed still.
+
+After dinner, we took rounds saying our "byes" to guests. And both of our throats started to hurt.
+
+## Part 3: Mini-Family Trip
+
+We headed out to the Cinque Terre area together with Serena's family as one big group (16) people!
+
+### April 21: Sick
+
+Woke up feeling extremely tired with a pounding headache. We then got picked up by Serena's uncle who drove me to the next hotel we will stay at. Serena went with her aunts on a minibus, and there was another minibus to store everyone's (16 people's) luggage.
+
+After around 90 minutes, we took a break at a cafe. We resumed our mini-road trip and another 90 minutes later arrived to [Capitolo Riviera](https://capitoloriviera.com/it/).
+
+The place is pretty great. It's literally brand new, as one of Serena's aunt/uncle apparently can stay at *new* hotels, which is a pretty demanding requirement. This is a 5-star hotel with turndown service. 5/5. The food is excellent as well. I didn't have an appetite at the cafe due to cold chills but the food here was so good that it gave me an appetite again.
+
+Anyways, it's good that the hotel had early check-in for all of us because we just slept right after lunch, and mostly didn't wake up other than to shower, take medicine, and eat some protein bars.
+
+### April 22: Strep Throat?
+
+Serena's aunt gave us some medicine the night before and it seemed to work well. Fever and headache completely gone. But my throat felt worse and it burns when I swallow food.
+
+Anyways, being almost all better we went around Cinque Terre and did a cool cliff hike after a boat ride. After the hike was done, we went to town to eat a little bit. Then, we did a quick, 15 minute hike to look at some cliffs and sea, and then took a train ride to a fancy restaurant. We had:
+
+* Scallops - 5/5, cooked perfectly with a nice, delicate and cheesy sauce.
+* Small squid pasta - 5/5 - nicely al dente and the small squid was juicy.
+* Catch of the day - 4/5 mostly because of price, but the potatos + soft fish was done fairly decently. Not too exciting though.
+* Stockfish stew - 4/5 - fish + potatoes in stew style = good.
+* Fish ravioli - 5/5 - they had a little sweet sauce on the ravioli which made the savory contrast really interesting.
+* Apple tart - 5/5 - really excellent texture juxtapose between the soft apple tart cream and sponge-like cake, and the harder bottom kind of like a slightly softer Graham cracker.
+
+After dinner, we headed back to the hotel and I did a bunch of resesarch on symptoms of:
+
+* Sudden fever
+* Sore throat with rashes
+* No cough
+* No runny nose
+
+Strep? Will take a 'wait and see' approach to see if throat gets even more painful, if so will need to go through the annoying process of trying to get antibiotics prescription from Italian telehealth.
+
+## Part 4: Honeymoon
+
+When I think of honeymoon, I think of long vacations that are extra-special because you just got married. But for me it is hard to create that classification because Serena and I have been fortunate enough already to do month-long trips already in the past and we've already experienced many, very extra-special experiences. Though we of course try to enjoy the best of our vacation regardless.
+
+### April 23: "Get on the boat" / Portofino 1
+
+We checked out of Capitolo Riviera in the morning after having one final breakfast with Serena's family. We took off at around 12:15PM and arrived at [Villa Gelsomino Exclusive House](https://www.tripadvisor.it/ShowUserReviews-g187827-d21280031-r965416713-Villa_Gelsomino_Exclusive_House-Santa_Margherita_Ligure_Italian_Riviera_Liguria.html) 1PM.
+
+Luckily, we get early check-in!
+
+This isn't a 5-start hotel but the room is quite cute, with an intricately painted ceiling I stared at for a while because it looked interesting. It had various fruits on the 4 different sides of the ceiling, and the center of the ceiling is painted as a sunroof, with vines growing on the sunroof window frame.
+
+The view is incredible, looking out into the village of Santa Margherita Ligure, and the nearby docks/Ligurian Sea.
+
+Ever since we landed, most days has been cloudy. Except this one. The next day was supposed to be a bit cloudy as well, so Serena had the idea to book a private boat tour. This was at about 2:30PM. We scrambled looking for one, and Serena finally found one. By 3:30PM we were on the docks, meeting with the skipper. By 3:45PM we set off to sea.
+
+He showed us everything from:
+
+* A villa that Moussolini used to own, and now is owned by Louis Vuitton.
+* A villa that Dolce Gabanna sold to Bill Gates, that he wants to turn into an expensive hotel.
+* Various WW2 bunkers.
+* More Louis Vuitton Villas.
+* Superyachts owned by the Pirelli family (they make tires).
+* A speed yacht owned by the guys that made Haribo.
+* Various villas owned by people connected with the government. The iconic Louis Vuitton Villa is right next to the villa owned by the riches family in Italy as you enter Portofino by boat. Other words, these neighbors are: the richest family in Italy and the richest family in the world.
+* A big villa under construction (right next to Bill Gate's) that's owned by a Russian oligarch. But has since been confiscated until the war ends.
+* An iconic D&G castle, where the other Khardasian got married and apparently they also sponsored her dress.
+* Stopped by Portofino. This is a small town with overpriced food but mostly is convenient for luxury shopping because Loro, Louis Vuitton, and all other LVMH brands. **For me, the best part is getting on a private boat without having to wait in a long line for a public ferry while all others watched in envy.** After all, why do things if not for the envy of others?
+* Stopped by another place that can't really be gotten to be car, only via walking from Portofino for about  an hour and a half, or another nearby town for about 4 hours. It has a big mausoleum and a watch tower, as well as a monastery now-repurposed as restaurants/tourist services.
+
+All in all, it was a really cool and wonderful experience and we headed back.
+
+On the way back, the skipper took a 90-degree turn and just said "Dolphins!" And there were a bunch of dolphins swimming. We caught a few glimpses of a bunch of dolphins swimming around before we headed back.
+
+After we dropped off our stuff at Villa Gelsomino, we headed out to eat. We ordered 5 pastas:
+
+1. Appetizer is codfish with pea cream. 5/5 because the codfish is really soft and fluffy, like a potato. It's almost like they bashed it many times until it became very easy to bite into and fluffy, and reshaped it back into cod-shape.
+2. Trofie with half cooked, half raw asparagus. 5/5. My mouth is filled with blisters, so this was one of the few things that can go down smoothly. We ordered this twice.
+3. Red prawn spaghetti with tomato. 5/5. Prawn is carpaccio style.
+4. Frutti di mare pasta - 3/5 - I don't remember much about this one.
+5. Orechietta with guanciale - 5/5. Though it burned my tongue heavily because of the intense salt in the guanciale is literally like salt in my wounds (of which my entire mouth was).
+
+All in all, 5/5 everything tasted really good and I'm sure even the pasta I don't remember tasted great. They put a lot of thought into the execution of every dish which is delightful.
+
+We also went through 3.5 bottles of water because every bite hurt my mouth.
+
+The damage for the 6 plates plus 3.5 bottles of water was about 120 euros.
+
+My hands also started getting painful blisters, so the diagnosis is changed from steph to Hand-Foot-And-Mouth disease. This is much more manageable as it is simply viral and will go away in a week without complications.
+
+But painful.
+
+### April 24: Portofino 2
+
+With great pain in my mouth, we ate breakfast at the villa. After, we set sail at around 12:15PM to Portofino.
+
+We walked around a bit and then ate a fancy lunch at around 95 euro per person (3 course). Actually not too bad because the individual items I describe below would have cost much more per person:
+
+1. Amuse Bouche - A small bread bite with avocado on the bottom and shrimp on the top. But these are hard to go wrong, so 5/5.
+2. First course: Tuna spaghetti. Tuna made into strands and then twirled together, like a forkful of spaghetti. Dressed generously with a seafood-tasting cream. 5/5, very unique and delicious.
+3. Second course: Stuffed very large rigatoni with tomato sauce. They give us giant cotton bibs so we won't splash ourselves with the tomato sauce. This is very thoughtful and nothing I've ever seen before. Tomato is acidic and burned my mouth a lot but well worth it. 5/5
+4. Third course: Tiramisu. Nice and creamy. Sweet, but not too sweet. 5/5.
+
+On the sides were various breads. I really liked the poppy-seed heavy bread even though it sliced my mouth (bread is hard). And their focaccia is the best I've ever had. This region invented focaccia and it shows.
+
+Whole experience = 5/5.
+
+We then went shopping. I stopped by Loro but didn't buy anything. While their jackets are cool they are not as functional for me:
+
+* Their windmate bomber is reversable and waterproof and cashmere, which is cool. Except there's no hood so you still get soaked from your head if it rains.
+* Their traveler has many pockets and seems to be made for traveling. This sounds cool and functional but there are no zip pockets, so securing items is not so secure after all. Also, while there is a hood, it is a bit flimsy and small, and not very practical for rain.
+
+I don't mind getting a traveler-like jacket if they made it with better pockets and a sturdier hood with perhaps and extended hood, so water won't splash your eyes when it rains.
+
+We did get some water from them though.
+
+Next, we hit up BV and Serena got something. We also got water from them and they had really nice service. They locked the door so other customers couldn't get in while we were shopping, making it a very private shopping experience.
+
+Or they locked us in so we couldn't leave without paying.
+
+What is surprising to me is Portofino is a very wealthy city and there were many people walking around, but not many walked into luxury stores to buy stuff.
+
+Another thing is that the night before, they did a celebration where they burned a bunch of trees to celebrate the saint that protects Portofino island (our tour guide pointed this out yesterday in the private boat tour as we were going ashore Portofino). So on this day, the huge mountain of trees we saw yesterday is now a bunch of hot, fuming ashes.
+
+After some more walking around, we took the ferry home at 5PM.
+
+5:30PM we ate at a pretty nicely priced restaurant. Pastas were in the teens which is very reasonable. We had:
+
+* A big seafood soup, which was good (3.5/5) but hurt my mouth due to bones scraping against my blistered tongue.
+* Spaghetti vongole - 5/5 - very generous with the clams and unlike the tart pomodoro sauce in the other spaghetti, this one didn't burn my mouth.
+* Spaghetti frutti di mare - 5/5 - hard to critique good seafood with pasta that doesn't cost an arm and a leg.
+
+Walked around a little bit more in golden hour lighting and went back up to the villa and rested.
+
+### April 25: Wow. Sanremo 1
+
+Had breakfast at the villa. Enjoyed the beautiful view one last morning and set off at 11AM to a new town!
+
+Drove around 2 hours and 40 minutes to Sanremo to beautiful [Royal Sanremo](https://www.royalhotelsanremo.com/?utm_source=gbp&utm_medium=organic). A true 5-star hotel. When I drove up the front door, 2 doorman opened both Serena and my door simultaneous, as if to pull us out of a car like kidnappings you see in the movie.
+
+But instead, they helped take our luggages and park my car.
+
+The downstairs of the hotel is beautiful. Wood floors with marbel columns, old money vibes. We had early check-in since + free upgrade since we booked with Amex plat. We dropped off our stuff in our immense hotel room with TWO FULL bathrooms (this is a first). I had a nepresso while waiting for luggage to come.
+
+Once the luggage came, we went down to the pool area of the hotel, which overlooks the Ligurian Sea. We just beach-bummed there and had a 33-euro burger with fries (4.5/5--fries were crisped really well and the burger was really nicely seasoned, the beef is locally sourced). Kind of small for the price, but we get a $100 credit from Amex Plat so that's generally how it works (food is overpriced but you still get a lot of it for free, so it takes a lot of the sting out of buying food in the hotel).
+
+In our case, we weren't locked into hotel food as there were many affordable restaurants nearby despite the Monaco vibes.
+
+I swam in their pool twice in the course of our 4-hour beach-bumming session. It was quite nice because it cools you off and there's a little nook where there is a large water column with moderate pressure that helps massage your back and any other joints you want to align to the column.
+
+Even their public shower area has a separate makeup room...with a chair and a BLOWDRYER.
+
+All in all it is a really awesome beach resort experience unlike any other. They made showering and drying off really convenient.
+
+Their beach chairs also come with a little solid/adjustable umbrella so if you want to take a nap you won't get sunburned.
+
+The whole thing is just so well thought out that while I don't rate resort beach experiences, it is a 6/5.
+
+The weather was also killer with the beaming sun that made the ocean gleam and the waterfront look lively.
+
+After beach bumming we decided to checkout their free spa before dinner. They have infinite juice/water to drink. There's a big jacuzzi pool where each section has their own different set of jets. There's also an 'emotional' shower where they randomly spray scents and spray you with different temperature water.
+
+Emotional damage.
+
+We also did the steam room which is quite nice. The sauna is only at 60C which is quite cool for a sauna and not very intense at all and was kind of boring.
+
+After a quick shower and change of clothes, we did dinner at 7PM with a deadline to GTFO by 8:30PM. We had:
+
+* A "small" seafood platter even though there were like a couple dozen pieces of seafood. From various types of clams to 2 small scarlett shrimps to 2 regular juicy shrimps. And 4 oysters. 5/5 - really insanely great deal for the value to be honest. I was shocked when they brought it out and was like "wtf this is piccolo? My Italian's not that bad."
+* 2 seafood risottos - 4.5/5 - again, extremely generous and tasty. Further enhanced by the fact that my tongue does not hurt as much as the day before. Risotto could be more al dente but overall really good.
+* Spaghetti alla carbonara - 5/5 - guanciale is yummy and chopped up into little pieces. The carbonara is extremely generous and is probably 2.5X the portion of a regular plate at any other traditional Trattoria's primi patti.
+
+We went back to the hotel and I type this up now in the hotel lobby as we listen to live music where they play various songs, from Michael Jackson to "Get Lucky" by Daft Punk.
+
+## Lessons Learned
+
+* When we got on the boat on April 23rd, that was completely spontaneous. And on April 24th, it was a bit cloudier and windier. It would have not been great to get on the boat the next day. It goes to show that **if an opportunity arises, you must always be ready and capitalize on it immediately.**
