@@ -1,5 +1,6 @@
 ---
 comments: true
+slug: 2025-marriage-trip
 ---
 
 
