@@ -515,7 +515,7 @@ Once the drinks were finished, we admired the night view at both the premises an
 
 All in all, a wonderful property and a wonderful birthday for my wife.
 
-### April 29: Overwhelmingly Green. Piedmont 2.
+### April 29: Private Spa Underneath a 300-Year Old Castle. Piedmont 2.
 
 We woke up and had breakfast buffet. Ate for a couple hours, and it was nice because it's the first time that waiters asked if I wanted a refill for capuccino, *twice*, totaling 3 cups of cappucino.
 
@@ -524,6 +524,8 @@ After breakfast, we walked around the property a bit which was overwhelmingly gr
 Went back to the room and just chilled until around 2PM. Then we checked out and made our way to [Castello Di Guarene](https://www.castellodiguarene.com/). This place is literally a castle. And was built in ~1700, which makes this place about 300 years old. It's gone through history from being a Unesco site to a castle where a family lived with a priest on site, only to be converted for tourism in 2011.
 
 Old school vibe with glass blown chandeliers, and as the castle sits on a hill, overlooks surrounding hills where you can see rows of vineyards and town life from the room's balcony. At the top of the castle is a beautifully landscaped garden, and has 360-degree views of the all the surrounding hills. Utterly amazing, especially when the weather is good.
+
+All in all, walking around the castle is *literally skyrim.*
 
 Underneath the castle is an underground escape tunnel, which is repurposed to lead guests into 2 spa areas:
 
@@ -573,7 +575,618 @@ And I find it funny that the current meta is:
 
 The grass is always greener on the other side, and with the advent of the internet, it seems like we're never satisfied with where we are, even though opportunities to live a good life is more or less democratized across 1st-world countries.
 
+Anyways, we went back to our room and there was evening turndown service.
+
+And they gave us a bunch of snacks.
+
+### April 30: 30 Euro Wine Tasting. Alba.
+
+We had breakfast at the hotel and chilled until 11AM. Since this isn't part of Amex FHR, there's no late checkout. So we checked out at 11AM but since check-in at the next place (only 20 minutes away) is at 3PM, we just spent a couple hours taking pictures and videos around the property.
+
+In the big lawn there was someone taking drone footage and turns out he is helping do a promo for the hotel for some TV program. Naturally, we asked him to take photos for us.
+
+After exploring the castle and walking around the property, it was about 1PM. And I went to the gym to work out. The whole setup is kind of suspicious, but they've got water, a leg extension, and a cable machine with a chair, so I was able to do chest, bis, legs, and some abs.
+
+At this point, it was about 1:30PM and we thought we'd try our luck to see if we can have early check-in. And with this, we **said goodbye to our last 5-star hotel of this trip.**
+
+Back to being a peasant.
+
+Drove about 20 minutes (very slowly, because I never know for unmarked roads if the speed limit is 90 or 30 or 50, and I don't want a ticket) to [Foresteria delle Vigne](https://www.villaggionarrante.it/location/foresteria-delle-vigne/). It says 4-star hotel but there's no real amenities. The plan's just to chill for a day before driving for a couple hours back to Milan to return to the car tomorrow.
+
+When we arrived, the restaurant was about to close (there's only 1 restaurant within walking distance) and it was great. We had:
+
+* Pasta ragu - came out very hot, and the pomodoro sauce is a nice balance between slight tartness and sweetness. 5/5
+* Asparagus ravioli - stuffed with creamy cheese which made it very yummy, and the asparagus balances it out with a nice veggie mouthfeel. 5/5
+* Chicken thigh - A little dry but thigh is hard to get so dry it becomes hard to eat. The sauce that came with it is good, and the grilled veggies on the side was specatcular. The crunchiness with a slight char smell was surprisingly good with the chicken thigh. 4.5/5.
+* Veal shoulder - A little dry again, like most secondis in Italy. But very easy to split with a fork. The potatos on the side were OK. 3.5/5.
+* 1 moscato - nice and sweet. Not complex. 5/5.
+
+Totaled 71 euro which wasn't bad.
+
+Once we moved our luggage into our room, we walked around and there was a small hiking trail called "tree of thoughts" nearby. A brief trail, about 20-minutes walk (but optionally can be 60-minutes if you take the long route). The trail is named as such as there are 12 "poignant" quotes about life and wine that you encounter when you walk across the trail; the only thought we both had when we finished the trail is "time to drink."
+
+Anyways, right across the street is a big winery and we did a wine tasting. The wine tasting costs were supposed to be:
+
+* 1 glass of Moscato for 5 euro
+* 3-wine flight for 35 euros
+* 1 glass of Borolo Riserva for 10 euros
+
+Or about 55 euros, plus the cost of 2 waters.
+
+At the end they only charged us 30 euros because of a discount. What a steep discount!
+
+And the drinks were pretty good as well. There was:
+
+1. An alta langa limited edition which is more on the dry/acidic side, but the acid goes away fast and doesn't linger nor intrude upon your taste buds.
+2. Some borolo red that is a little bit more acidic. Grown on more softer soil on the other side of the river, closer to the Guarene region (which was where our last 5-start hotel is located).
+3. Some borolo that is very acidic, which is grown on this side of the river from a specific villa.
+
+The borolo is aged about 39 months, and the Riserva is 63 months. Reserves are generally mixed grapes so have a more balanced flavor. At only 10 euros a glass, I wanted to try it out as well. It seems like they just serve whatever Riserva they have open. And luckily since there was a wine tour before us, they had a good (120-euro bottle) opened and they poured me a glass. It was quite balanced and the smell evolves. At the beginning, it smelled very woody, like a piano or old mahogany, or very barrel-wood smell. After about 10 minutes, it smelled more like a normal wine that's more sour. But the taste remained mostly the same, which is quite balanced.
+
+The moscato was sweet.
+
+Wine tasting I'd say 5/5 due to extreme discount and generally good quality drinks.
+
+Went back to the room to chill for a bit until time for dinner at 7:30PM at the same restaurant. The menu's the same. We had:
+
+* Appetizer: Veal tartare -- the meat isn't bland unlike most tartares, but it isn't gamey either. It was the perfect balance between a meaty flavor but not overly aggressive. Complemented with some veggies that are slightly bitter like chicory, it actually tasted really good. 5/5.
+* 2 red wines: one is more full-bodied, one had more tannins. Both are good. Maybe 4/5 but hard to critique wine as I just eat it with food. But paired quite well with the food.
+* Ragu pasta, still 5/5.
+* Ravioli, still 5/5.
+* Lasagnetta (small lasagna) that is veggie. Tons of creamy cheese which stole the show. The cheese isn't just salty, it is nice and creamy and fatty and umame. 5/5.
+* Gelato for dessert - tasted like a creamier version of McDonald's sundae with caramel sauce on the bottom. The caramel is nice because it's sweet but not too sweet and actually carried a little bit of bitterness which counteracted the sweet vanilla gelato a bit. The caramel texture is also not sticky, and instead was a lot more viscious than what you'd find in a very reduced caramel sauce. This is nice because I hate sticky caramel. 5/5.
+* Meringue - Had some berries to go with the meringue including lingonberries. This is nice because the tartness from the lingonberries (along with the lemon cream in the middle of the meringue) really balances out the meringue's natural sugary sweetness. 5/5.
+* Paired the 2 desserts with moscato, which is again, 5/5. The moscato is sparkling wine, so before the sweetness, there's a little bit of a tingle from the sparkling.
+
+They have a very small menu (we ate all the mains except a pure veggie one, and all pastas). This is great because small menus means the chefs have practiced the same recipes again and again and with easier logistics + many reps = very great quality flavors, which is what we got. Overall, [this restaurant](https://www.villaggionarrante.it/location/osteria-disguido/) is a 5/5 easily.
+
+### May 1: Reunion with Serena's Parents. Milan.
+
+We woke up eating at the same restaurant for breakfast, as it's included with the hotel and the only restaurant within walking distance.
+
+It was very good; great croissants, breads, omelette, and I drank 5 coffees to prepare for the 2 hour drive from Piedemonte to return the car to Milan.
+
+During the drive, we had a rest stop. These "servicio" stops on the freeway is huge; they're like the famous Vegas rest stop which I forget what it's called. Many of these feature a 2-to-3 story high Eataly, which is a huge food mall where you can buy Italian groceries or simply eat. And serviced gas stations. With 50km left in the journey, I filled up my gas. I was expecting to have to pump the gas myself as you would. But as soon as I pulled up, the attendant started filling up my gas and cleaned my window. Jesus. I've never had such a delightful gas experience.
+
+The best I get in the US at a gas station is just the feeling that I won't get shot sometimes.
+
+Anyway, cost about 100 euros for 50+ liters. This Renault AustralE was a good car. It has about 1000km (600 miles) of range. Which lasted the whole journey from:
+
+* SMN Florence, to
+* Villa Cini, to
+* Capitolo Riviera, to
+* Hotel San Remo, to
+* Casa Di Langa, to
+* Castello di Guarane, to
+* Alba, to
+* NYX Hotel Milan.
+
+Which totals 913km, or 567 miles, before I had to fill up. And when I filled up, there was still about 100km estimate left in the tank. **San Francisco to Las Vegas is 568 miles, so if you had a full tank, you'd only need to fill up once to do a round trip.**
+
+Anyway, I returned the car. And we dropped off our bags at our hotel (NYX Hotel). The service there is quite nice and the doorman was very helpful with our luggage.
+
+Excellent hospitality, especially because my expectations for big cities is low.
+
+We went to the Starbucks Reserve Roastery near the Duomo in Milan. There's only a few in the world and we've been to the NY one many times, so we thought we'd do the quintessential American thing which is just go visit a Starbucks in a foreign country. We got the whiskey barrel aged cold brew which tastes the same as NY, the whiskey sour cold brew which tastes like iced lemon tea, and maritozzo which is 5/5 huge and full of cream. We also got some olive bread thing which 3/5. The whiskey barrel aged cold brew is 5/5, smells woody and mahogany. The whiskey sour one 3/5.
+
+It was very hot, so we went to Rinascente to get some AC. Serena's parents met us there as well, after they did a separate itinerary once we split up with everyone after Capitolo Riviera.
+
+The first order of business in reuniting is shopping at a 4PM appointment at the Milan Moncler. After trying out clothes for 2 and a half hours, they got 2 jackets.
+
+At 7PM we went to a restaurant that Serena's parent already went to the night before. It was good. We had:
+
+* Beef tartare - 4/5, tons of olives in it which gave it a unique flavor. No egg yolk though.
+* Gourmet Pizza 2.0 - 5/5 - it had a huge barrata with parma ham and 2 types of tomatoes: cherries and sun-dried.
+* Meatball with cheese - 2/5. Eh.
+* Carbonara - 3.5/5. It was nice and creamy but the guanciale isn't fatty enough. Generous portions though.
+* Vongole - 3/5. Clams quite sandy and small. Not a lot of pasta and not that many clams. Kind of a stingy portion.
+* Some salad - n/a, I didn't really eat it.
+* For desserts we just picked from pictures. I believe it was some coffee panna cotta and something else that's similar. They were 3/5. Just sweet, nothing memorable.
+
+The place was overall 3/5. Good service. OK food. But nothing insanely out of the ordinary. Went back to the hotel after escorting Serena's parents back to theirs. Turned in early since have a long bus ride the next day.
+
+### May 2: New Day, New Country. Lyon, France.
+
+I didn't really sleep, probably because I had 5 coffees. But, we got up at around 5:45 AM and then ordered an Uber XL. We caught the Flixbus at 7:25AM and made our way from Milan->Turin->Lyon (only 2 stops). Though it is a 6 hour ride, there was a 10 minute break about 1 hour into the bus ride, and then another 30-minute break at around noon. I thought this was pretty good.
+
+There was a bathroom in the bus, but after someone threw a roll of TP in the toilet, it became unusable as when you flushed the toilet, the greywater would just splash all over you as it'd bounce from the TP.
+
+Anyway, we arrived to town and called another Uber but the Uber driver kept pressuring us to cancel. We only did so once the fee to cancel disappeared.
+
+The next Uber XL is a lot better and got us to our hotel. After all this, it was around 3PM and time to check-in (we got off the bus at around 2:15). The room is very nice and spacious. One coffee table area plus a big work desk area. Big bed. Not bad at all considering we'll stay here for the next 6 days to eat and to use as a staging area in case we want to explore nearby towns.
+
+We walked around the town a bit, and noticed there's a Westfield Mall nearby. We walked around briefly then took the train to the old town area, where we went to a market and had some French empanadas.
+
+They were Mexican. Though it was good so probably 3.5/5.
+
+We also had cannelli and a praline tart, as well as a bugne which was recommended by Chat GPT. The tart had really great texture, but didn't taste like much so 3/5. The cannelli is sweet but not too sweet and chewy like a mochi 4/5. Bugne...2/5, nothing special.
+
+Then, we walked around town a bit until 7PM where we had a reservation at La Vieux Lyon. We had:
+
+* Fois Gras, half cooked. I prefer Spanish Fois where it is cooked and fatty and oily. These are mildly cold so it is not as creamy. I'd say 3.5/5.
+* Escargot. The garlic sauce is very nice. Kind of like a very herbacious pesto. I like how they shelled the escargot so you don't have to dirty your hands. 5/5.
+* Andouillette, also recommended by ChatGPT: this is intestines in a sausage. They served it with a mild mustard sauce. And fries. Their fries are mostly fried from potato skins, so the texture and flavor is really unique and yummy. 5/5.
+* Quenelle, which is a creamed fish. The texture is really nice, like a potato puff, except it's fish. The fish sauce was also quite good. Though while the texture's great, the flavors weren't that bold and just kind of there. I'd say...3.5/5.
+* Duck breast. Some pieces were a bit overcooked (medium) and some were nice and bloody (mid-rare where you can taste the duck's gamey flavor more). The sauce is like a minty bernaise sauce. Overall it was good but the inconsistent cook gives it a 4/5.
+
+I'd say overall the place is a 4.5/5. The service is great.
+
+And in fact my expectations and stereotype of the French is that they are snobby and won't bother speaking Anglais. But my the French bitch-slapped my expectations because I'd have nothing but good experiences so far. Everyone's been kind and friendly. And they spoke perfect English.
+
+And even during the 30-minute rest stop (which I didn't know)--when Serena went to the restroom, the driver came up to me with a concerned look:
+
+> Eh, 30 minute break.
+
+To which I thanked him and of course obliged to get out of the bus because 30 minutes is a nice break to stretch my legs.
+
+### May 3: The Best Store In The World, Captain Wong. Lyon 2.
+
+Woke up. There was a fire alarm in the hallway but it was quite faint. It just said 'fire alarm. evacuate and head downstairs.'
+
+Thank goodness Serena called the front desk and they told us it is a false alarm. Prevented us from getting out of our beds, while we heard our neighbors scrambling downstairs, then back up into the room.
+
+Went to Westfield mall next door and got an expensive AF coffee. It's a bullet coffee, but instead of MCT oil I think they just put coconut oil on espresso.
+
+Then we did a fashion show at C&A but it was a bit too expensive so we passed.
+
+Serena then introduced to me the best store in the world: Primark. They sell shirts for 3.5 euros, and decent quality too. There are a few pieces we want to go back and get a few days later. Overall very good quality.
+
+After Primark, we went to eat lunch at a place called Chez Banoi. We had an appetizer that is kind of like a viet dumpling. It was good, about a 4/5. Then, our mains:
+
+* A beef bun, their fish sauce is in a little glass bottle which made it impossible to dip the noodles into the fish sauce. The beef is kind of just like tritip, and not grilled. Just cooked regularly and a little bit tough but not thinly sliced. Veggies were nice though. Overall, 3/5.
+* Their pho had a nice light broth reminiscent of Hanoi. But the beef is overcooked and also the same tritip. Normally it is thinly sliced beef where it's basically bloody raw in the center so when you dip it in the hot broth, it is perfectly cooked. I'd say 2.5/5.
+
+Overall, the viet placed was OK and the service was good. 3/5. We bumped into a family that runs/inherited Harvey Nichols in Hong Kong. They were loud and obnoxious AF. One was in a full Gucci outfit. Another was in Chanel. Another in full Dior. It's like they have an unwritten rule where they have to have a single brand from top to bottom. Very ugly and loud fashion. Screams old money and not self-made.
+
+Anyways, it took them a full 10 minutes to decide where to sit in a very small restaurant, and they had a lot of trouble ordering from the menu so had their translator help them out.
+
+Then, we made our way to Tete D'or (Golden Head) Park. On the way, we stumbled across a seafood shop and we had a dozen oysters + a cup of hot wine. All for 28.50 euros (though I think I'm overcharged here as a dozen is 17 euros + 3.5 euros for the hot wine, so maybe the 8 euros is cover charge or some bullshit).
+
+We made our way to the park and it was overwhelmingly green. When the wind blew across the tree canopies overhead, it sounded exactly like ocean waves. I've never heard trees make that noise before.
+
+Then, we went to the lake and while we originally wanted to do the boat-cycling thing, we could also rent an electric boat for 35 euros for 30 minutes.
+
+So, captain Wong set sail and circumnavigated the lake. I steered us right next to some ducks / ducklings, and some swans up close. We then saw some other ducks but it was too close for Serena's comfort, so I steered away.
+
+The electric boat was *very slow* and at a few points, it could not propel forward due to headwinds, so max throttle mean stationary or even moving backwards. As there was a 30 minute limit this was worrisome.
+
+But Captain Wong to the rescue. I learned in Fluid Mechanics that the boundary conditions for liquids is 0 velocity at the boundaries. So I rushed the boat to shore and navigated the boat back to the dock to return it, literally just on time.
+
+When we went back to shore, there were some flamingos. So we took some pics of it from afar.
+
+Then, a pelican appeared literally right next to us!
+
+It started flapping its throat pouch like it's a sail being blown by wind. It tucked its wings in and patrolled back and forth as if to say "I own this place." It took some selfies with it.
+
+Ate some overpriced ice cream in the park after because it was hot. And after the park, we headed to old town to walk around for a bit before dinner. We looked for a bunch of shops and found a dessert shop with cannelli again. I also tried a praline brioche (meh, no flavor and brioche was too hard and dense). And a chocolate madeleine. That was pretty good; not too sweet.
+
+Then, we found a bar to sit at--only to realize there's no alcohol served there. So we ordered 2 mocktails for 20 euros and sat there from 5PM to 6:40PM, because there was a huge thunderstorm, so we just waited it out.
+
+We made our way to Les Lyonnaise at 7PM and ate:
+
+* Poached eggs with wine sauce and bread: This was pretty good. The wine sauce is the perfect mixture of sour and distinct wine taste. Very fragrant. Poached eggs were perfect. 4/5.
+* Chicken liver with tomato sauce. The liver had no gaminess to it and was too bland. The sauce also didn't really hit me as a special pomodoro sauce. 2/5.
+* Fried intestines (looks like a schnizel but doesn't suck) with Lyonnaise potatoes and wine-braised veggies on the side. The intestines had a very intestinal fragrant to it and paired well with the mustard sauce they gave. The potatoes were layered and creamy, the veggies paired very well with the creamy potatoes, and overall the dish was very good. The intestines were a bit hard to cut and a little too chewy. 4.5/5.
+* Andouillette again, but with Lyonnaise potatoes and wine-braised veggies. A bit more chewy than yesterday's, but served in the same way. The chewiness gave it a good texture and isn't too chewy. Great dish. 5/5.
+* Creme Brulee - nice and creamy, with a glass crust that is so fragile you can break with your tongue. Pleasure to eat and a great texture juxtapose. 5/5.
+* Rum cake with cream -- basically it is a soup of rum with a cake and lots of cream on the side. The rum is very strong and bold which the cream can balance. Though overall even the people sitting next to us says the rum is too strong. I'm alcoholic though so 3.5/5.
+
+On the way out I was putting on my weather proof jacket and normally Serena helps me position the second sleeve has my broad shoulders have a hard time reaching the hole. But the owner of the place came out to help me put my jacket on. Because I'm a baby. Overall, the food is slightly better yesterday but since the service is so good and the owner personally came out to thank us for eating there, I'd say a tie at a 4.5/5.
+
+### May 4: Slow, Chill Day. Lyon 3.
+
+I woke up around 9A and hit the hotel gym for a few sets. After I went back and showered, we went out for lunch at an Ethiopian place. Tons of injera and food. They lit incense around that smelled really good. The place is called Gojo, and we had:
+
+* The meat platter, which is a 5/5. It's got various veggies and chicken and the nice, spongy, slightly sour injera pairs really well with the various veggies and chicken.
+* Lamb stew, which is a 5/5 and does well with the injera. If I had to eat it by itself, it'd be too salty and more of a 3.5/5.
+* Ethiopian coffee which is a 5/5 - very fragrant, but kind of expensive at 3.5 euros for a small cup.
+
+Overall, the place is 4.5/5. Good service, good food.
+
+We wanted to go to some museum, but made a detour at the local market. It was somewhat deserted a couple days ago when we went there, but it was in full swing this Sunday afternoon. We wanted to find some place to do drinks, but it was too crowded and too expensive for a lot of places.
+
+Then, we made our way to the natural history museum because its architecture won a bunch of awards. We have no intention of actually going through the museum because it can't possibly compare to New York's. So we spent a couple hours taking pics and videos of the outside, walked around the lobby a bit, and then went to the cafe for some drinks. There's a big water feature outside of the museum, and 2 ducks went in.
+
+I watched them for a while. And the whole time we were there, the 2 ducks just chilled and frolicked in the water.
+
+Afterwards, we made our way back to the hotel to see what we want for dinner.
+
+It started raining super hard so we canceled reservations for a Lebanese place we wanted to try and instead found some food in the Westville Mall next to us instead.
+
+We had some pad thai--one beef, one duck. The duck is decent, but the pad thai didn't have enough wok hei, so 3/5. The beef was just OK, so 2/5 for that one.
+
+Walked around a bit more to try and wait out the huge rainstorm but it turned out that it'll just keep raining heavily for the rest of the night so we walked back to the hotel.
+
+### May 5: Speedrunning Paris + France vs. Italy Comparison. Lyon 4.
+
+Woke up. Went to train station next door at around 7AM. Today's mission: do a day trip to Paris.
+
+Arrived in Paris at around 9:30AM.
+
+#### Sacre Coeur
+
+First stop is the Sacre Coeur church (John Wick 4 where he does the duel). Walked up the stairs, which was a lot shorter than I thought (the metro exit leading to the church has 144 steps and has caution signs everywhere saying there's 144 steps, and that felt a lot longer).
+
+The front of the church is a huge crowd with concrete floors, so I think the gravel and a lot of the frontage of the church is CGI'd in the actual movie.
+
+The view's great though as it overlooks Paris. But down the front steps of the church is nice greenery with neatly landscaped, symmetric bushes.
+
+#### Palais Du Royale Jardin
+
+Went to the royale garden next. They have sick treelines that are groomed symmetric to each other. And when you walk underneath it, you have one tree to your left and one to your right the whole way through.
+
+But what makes this landscaping amazing is the symmetric trees cover everything above you, except for a slit, so there's a single slit of skylight across the entire path.
+
+Behind the actual garden was some modern art where there are a bunch of black/white striped poles at different heights. Like the other tourists, I climbed onto one and took photos and videos.
+
+#### Louvre
+
+Then we made our way to the Louvre and took some photos outside. A lot smaller than I thought. It was OK and kind of underwhelming.
+
+The crowd was overwhelming though.
+
+I liked the garden that is adjacent to the louvre though. The landscaped bushes looks like a bunch of madelines of different heights. 
+
+#### Rue de l'Université
+
+On the way to the eiffel towel, we had lunch at the Rue de l'Université region which is an expensive AF (NY prices) region. We went to a place called the Petit Tonneau (small barrel):
+
+* Pig Ear Crisp: Basically it is like an Andouillette except the inside is fatty pig ears instead of intestines. And the outside is nicely fried and crispy. Presented in a rectangular shape instead of a sausage shape. Very good. Served with mayo and some pickled veggies. 5/5. The crispiness is like a french fry, and the soft, fatty filling is immensely delicious.
+* White asparagus, similar to the one we had in [Madrid](../spain_2024). Served with a very cheesy cream. It was good but too fibrous, compared to the ones we had in Spain. The Spain ones were a lot more soft and fluffy. 3.5/5.
+* Dish of the day, which is a chicken breast served with butternut squash puree. The puree was good but the chicken was overcooked. 3/5.
+* Veal with vegetables and pilaf rice. The veal is nice and fork tender, served with a yummy cream that goes quite well with the rice. 4/5.
+
+All this is quite expensive and came in at 108 euros, because one water cost 8 euros there. I'd say the food was hit or miss and it was far too expensive at NY prices. Thus it is not really special and I give it 3.5/5.
+
+#### Bakeries
+
+After lunch, we continued our way to the eiffel tower and stopped by a few bakeries. We hit up the usual cannellis again and that was good.
+
+I tried to venture out and eat French baguette, with a tuna+mayo version. They wouldn't heat it up and the bread is hard and chewy. It is I would say, a bit below average and 1.5/5. My lowest score on this trip yet.
+
+Then we had some pan au chocolat which was really good. 5/5 good. And macarons which we did coconut, pistachio, and lemon. All 5/5. And only 1.5 euro also!
+
+#### Eiffel
+
+We took some quick photos of the eiffel tower and then started walking towards the shopping district. As we walked towards it, there were some bridges and angles that let us take various angles of the eiffel, so I just kept taking as many photos and videos as I can where appropriate.
+
+#### Champs-Élysées
+
+We arrived to the shopping district and walked around for a bit. We made a quick stop at the Arc De Triumph but a lot of it was blocked off due to an event, so I only took far-away photos.
+
+I then lost my sunglasses (presumably fell out of my shirt as it often does). But it's only $9 so I can always buy it again. It lasted 10 months with me which is already pretty good.
+
+We looked at a bunch of stores and did a bunch of window shopping. However, the merchandising isn't as attractive as Italian shopping. The brands are a bit more ghetto, and how everything's displayed is a bit less luxurious.
+
+Also there's a shit ton of people unlike at Portofino, which made thing whole thing feel like shopping at the Marrekesh markets as opposed to high fashion street.
+
+If Spanish Steps is a 5/5, this is closer to a 3.5/5.
+
+Pretty, for sure, but I'm not going to wait in line for an hour to go into an LV store when I can go into a similar looking one in NY 2 streets over from my apartment, at any time.
+
+Overall, it's OK but somewhat impractical to shop there so as an actual place to shop it isn't good. But as someone just perusing, it serves it purpose.
+
+Took a train to somewhere else to take a look at department stores.
+
+#### Printemp (Spring) Department Store + Lafeyette.
+
+This just opened up in NY and you gotta wait hours to get in. But for this one in Paris, you can just go in. It's a big department store with connected sections, like Takashimaya in Tokyo, where one tower is only for male fashion, and the other for female. Walked around, but nothing really popped and nothing special--it was just average. You can pee for free though, so we did that.
+
+Walked to another department store nearby, named Lafeyette. In the center is an intricate dome ceiling with balconies sticking out all around (each balcony is a small shop), and when you look at it from below, it's like an intricate movie theatre where the balconies house seats.
+
+Lafeyette's also got a rooftop and you can overlook Paris, along with a clear view of the Eiffel tower. It was crowded AF so I made a joke about expectations vs. reality. And then after an awkwardly long time (20-30 seconds), some guy loudly said to me:
+
+> But isn't expectations and reality the same?
+
+I have no idea what this fucking means so I just smile, nodded, and GTFO'd.
+
+The actual department store had many stores, but again, it was OK and I didn't really see anything that blew my mind.
+
+#### Dinner
+
+At this point, it was about 5:30PM. Our train back is 7:20PM. So we went to dinner at [Lou Cantou](https://www.loucantou-restaurant.fr/).
+
+* We both had onion soup for appetizer. Very good. Very cheesy. And the cheese is quite melted so eating it is very stringy. The soup's also quite yummy. I had a bread that was too hard though. And there's not a lot of caramelized onions. I'd say 3/5.
+* Duck confit with roasted nude potatoes. The duck, while confit, is a little bit dry. The potatos were very good though. No sauce. I'd say this was 3.75/5.
+* 7-hour slow cooked lamb with some wine sauce and Lyonnaise potatoes. The potatoes were presented in a mille fleur style and complemented the savory lamb very well. Lamb was fork tender. 5/5.
+
+Overall, the service was fast and the meal quite satisfactory. And the whole thing was only 56 euros, which makes this a 4/5 IMO.
+
+#### Dessert
+
+Before we went on the train, we went to a nearest bakery and got 3 mini cannelli, 1 big cannelli, 1 normal financier, 1 chocolate financier, and 1 mystery financier (just a rectangular tart thing but with sweet cream on top). We had it in the train.
+
+#### Train Ride Back + THIEVES
+
+It was hard to eat the dessert on the train ride back because the guy in front of me had very offensive BO. I find offensive BO equivalent to assault and it would be nice to be able to stand my ground. Unfortunately, I just used various techniques to taste the pastry without also smelling the BO. This included putting the back of my hand to my nose, putting my shirt over my nose as I was eating, and eating with my mouth and noise inside the bakery's to-go bag.
+
+The AC was turned on and maybe after an hour the guy's body odor went down to 10% of what it was.
+
+With the train ride over, as we were waiting to get out of the train, a lady had her luggage moved (or stolen). This train is a single stop so it's hard to imagine it was stolen. But Serena tells me that people here will just move your shit somewhere random so they can put their luggage in the rack instead of yours. So that's probably what happened, or it was hidden so it could be stolen later.
+
+#### Back Home And Thoughts
+
+Back home, I'm writing this and I hear some woman next door have sex extremely loudly. For like 15 seconds straight.
+
+Overall, I think Paris is basically New York but with a different skin. The metro is a bit cleaner, but Lyon's is a bit more advanced (takes Apple Pay instead of having to install an app where you fund a transit card). Metro also similar to New York as buskers would come and do some act and then ask everyone for money. But people in New York actually donate whereas the performer got nothing here.
+
+Overall, I like Lyon a bit better as it is newer, cleaner (they have trash cans at every street corner) and quieter. But it is harder to find restaurants that are open at 5:30PM in Lyon though unlike Paris.
+
+So far my impressions of France vs. Italy is that while food-service people are quite nice in France, the people in general are a lot more inconsiderate and rude than Italy. I get bumped a lot more in France than I do in Italy just walking down the street for example. The food is fancier in France, and Paris prices for food is New York prices basically. Both France + Italy tend to overcook their meats. In France, every service person says "bonjour" and people in the streets are much more in your face. In Italy, it really seems like New York in the sense that everyone defaults to minding their own business.
+
+#### How many steps?!
+
+I walked **29,138 steps on this day.**
+
+### May 6. Bon Appetit. Lyon 5.
+
+Woke up, went to gym.
+
+I just did side laterals and pulldowns to maintain.
+
+Then went out to McD's to get a large cappuccino. It was expensive at 3.5 euros. But in exchange, we got the passcode to the restroom: 2401.
+
+This is a good thing because the Westville mall here forces you to pay 1 euro to use their restroom. Not only that, you can't just pay 1 euro, you need to buy a ticket with the 1 euro and then scan the ticket on a gate to pee. So in the middle of shopping, I just went back to McD's to piss.
+
+After a little bit more walking, it was 11:40AM and it was about time for lunch. So we took the metro from the Westville mall to Bellecour to eat at the [2 rivers restaurant](https://lanouvellegarde.com/fr/brasserie-des-deux-rives/). We had:
+
+* Half a bottle of wine, it went down easy. 4/5.
+* Onion soup for appetizer. It was very cheesy and had more onions than yesterday. Though could use more onions and flavor could be more dense. 3.5/5.
+* Local cheese. It was light and went well with the wine. But it was just cheese, so 2.5/5.
+* "Silk workers brain" which is a local Lyonnaise dish that is just a cheese dip. It really tasted like tzatziki. Went great with bread. 4/5.
+* Liver cake. Per French preparation, this is more on the cold side. Not too memorable. 3/5.
+* Beef tartare with fries. It was really good as it was seasoned very nicely with spicy radishes and other herbs inside. 5/5.
+* Catch of the day--it was some soft white fish in some sauce. It had pistachio crumbs on the top, and it was extremely delicious. 5/5.
+* Creme Brulee--It was good, not great. The cream underneath is good and the top is nice and glassy as you'd expect. But unlike the Creme Brulee at Les Lyonnaise, the crust is more chewy and doesn't not break down as easily. So a bit too thick on the crust. 3.5/5.
+* Praline + hazelnut mille fleur--The texture was very nice, but a bit more dense than mille fleur you'd have at say, Lady M. The nuts is a nice touch, but too many nuts which made it a bit harder. Overall though quite nice as it's sweet but not too sweet. 4/5.
+
+Overall, good service and good mains. Appetizers and desserts were OK or better. I'd give this place a 4/5. Was about 100 euros. Not too bad considering.
+
+Then we just walked around a bunch nearby. We did a lot of window shopping. When we were tired, we stopped by a bakery to have madeleines. It was decent but not a huge madeleines fan, so 3/5.
+
+We walked around a bit more and then stopped at another bakery to have croissant + pain au chocolat. Both were good, but I prefer pain au chocolat more as it has more flavor. Serena preferred croissant more because of the flavor.
+
+While we were eating a crazy guy kept harassing the store, and then patrons (us included). It was annoying but he went away eventually.
+
+After eating, we walked more and then eventually visited the Printemps in Lyon as well.
+
+Then we kept walking and walking and realized despite a whole day of walking, there's still tons of shops to visit.
+
+Eventually, we ran out of time and it was time for dinner at Les Infidèles. We had:
+
+* A glass of red wine. Very easy to go down, a little on the sweeter side. 5/5.
+* Amuse bouche: Some roasted and/or fermented garlic (or onion) with marshmellow. The roasted crumbs of garlic/onion tasted like old-school [Calbee's hot & spicy chips](https://www.calbee.com.hk/en/product/5). Not the new style where it's no longer spicy and too sweet. It's like a fragrant, spicy crumb on a s'more. 5/5.
+* Appetizer: Arancini. It was quite good. Nice and crunchy on the outside, with a nice tomato sauce. 4.5/5.
+* Appetizer 2: Soft boiled egg with guanciale. Both are good ingredients and are good but nothing special. 3.5/5.
+* Angus with mustard sauce. Cooked rare. And this is a great rare. Nice and juicy and moist. It also came with a side which is noodles with some pickled veggies. It also was in a sweet potato puree. Despite Serena saying that the sauce is too salty, I think it was actually kind of perfect. 5/5.
+* Cod with lentils, *coffee cream*, and small bits of ***popcorn*** on the top. The texture, slight bitterness from the coffee and popcorn really complements the slight sweetness of the lentils and the softness of the cod. 5/5.
+* Dessert 1: Pear cake, which was nice and hot. And on the side was some cream and pear confit. The hot cake and the cold side paired nicely. And the mild sweetness of the cake and the more intense sweetness of the confit also paired nicely. 5/5. 
+* Dessert 2: Paris-Seoul, which is kind of a mini-brioche with cream sandwiched in the middle, and hazelnuts on top. They poured a bunch of pandan sauce which created a large green pool. The brioche soaks up the pandan sauce so you can get a more intense, sweet taste. Overall, very creative and I love pandan, so 5/5 again.
+
+Overall, service was great and fast and this is an easy 5/5. And the best part: we both had 3 things with sides, and a wine. *It was only 65 euros.*
+
+**Number steps: 22,615.**
+
+### May 7. The Cheapest Shoppers AKA Our Last Day in Lyon. Lyon 6.
+
+Woke up and went to get a cafe au latte at McD's. Then, we went to do some shopping at Primark. Wanted to get a sesame street PJ but they wouldn't let us because the top was L and bottom was XS. Waiting in the line took forever. But it is cheap though.
+
+Then, we went to lunch at [Restaurant Bergamote](https://restaurant-bergamote.fr/). It's Michelin-recommended apparently, and we had:
+
+* Amuse Bouche - Pea soup with peas and mint. Very nice. Very refreshing 5/5.
+* Appetizer 1: House-made Pâté en Croûte (meat pie in pastry crust). Very nice, because it was cold and creamy/meaty on the inside, yet the crust is kind of like a tart's crust. Nice and crumbly 5/5.
+* Appetizer 2: Lean fish from Corsica, gravlax-style, creamy green peas, horseradish cream, mint oil. Kind of like hamachi sashimi. The horseradish is very light so wasn't intrusive at all. The mint was very fragrant and made the fish pop 5/5.
+* Main 1: "Rockfish, bouillabaisse siphon, potato, artichoke and saffron, rouille sauce." I don't really know what all this means but it's 3 cuts of nice, soft, white fish that's a slightly different cook. And came with 3 raviolis that was like a very moist dumpling. There was many ingredients and it all came together very well. 5/5.
+* Main 2: "Lamb shoulder slow-roasted overnight, crispy lamb chop, asparagus, garlic-roasted carrot purée, olive earth, house-fermented tomato condiment." Fork tender lamb that's slightly gamey (which I love) and the sauce is also nice and umame. The puree is what you'd expect, and the veggies on the side was cooked quite deliciously and paired with the heavy meat quite well. 5/5
+* Dessert 1: "**Easter Chocolate**: Guanaja chocolate and porcini ganache, soft chocolate biscuit, salted butter caramel bavarois, caramelized cocoa nibs, porcini cream." This was nice and sweet with many textures. Crumbs on the top. Nice and soft in the middle. Some saltiness from the caramel to balance out the sweetness. 5/5.
+* Dessert 2: "**Sunny Leaf by Leaf**: Almond espuma, rosemary sorbet, buckwheat crisp, rosemary in various textures, and almond." This is quite light as there was a white, light foam of almond. While very light tasting, it comes to life with rosemary extract oil which kind of makes the whole thing smell like refreshing, sweet, herbacious soap. The sorbet's nice and cool which also adds to the herbaciousness / freshness of the dessert. Wow. 5/5.
+
+Overall, it is a 5/5 on pure taste alone. And the best part, only 39*2 = 78 euros.
+
+As it's our last day in Lyon, we went to a pharmacy and Serena got a lot of cream. Apparently they are 1/3rd the price vs. US. After that, we hit up the same bakery we ate at a few days ago, at [Bakery Albon](https://www.instagram.com/boulangeriedalbon/?hl=en). We bought the following to eat back at the hotel:
+
+* Croissant, 3.5/5. It is objectively a great croissant but I only care about croissants so much.
+* Pain au chocolat - 4/5. What you'd expect from this dessert. The crust can be a bit lighter though.
+* Madeleines - this was thinner than others, so there was more surface area. Pretty good but like croissants, I don't care that much about this dessert, 3.5/5.
+* Cannelli again, 5/5.
+* Lemon meringue tart - nice and sour lemony tart, with slightly sweet meringue to balance it out. 5/5.
+
+Then, we just chilled at the hotel and went back out for dinner at 7PM, at La Vieux Lyon again (same restaurant as the first night). But before that, we stopped by Primark again because they refill stock constantly. I got a very comfy oversized shirt for 16 euros in green, and wanted one in beige. But they were out in the morning. When I went again, they had it in stock so I nabbed it. Anyway, at La Vieux Lyon, we had:
+
+* A "pot" of wine (42cl), red. Paired well with the heavy food I have below, so 5/5.
+* Onion soup: This is done correctly. Nice and soft bread with intense onion flavors in the soup. And the cheesy is melty as FUCK. Finally, I can give a French Onion Soup in France a 5/5.
+* Escargot -- such a great deal as other restaurants offer 6, but there's 12 here. And it is the same review as last time, except I'm a lot more skilled at extracting every last drop of the herbacious oils in the mini escargot bowls by using minimal crumbs of bread. 5/5.
+* Bone marrow -- very good. The bread is a bit too big and there's places in NY where the bread is more rectangular shaped so it's easier for you to scrape the bone marrow on it. Also, the bone marrow is a full cylinder type, as opposed to a long, half-cyclinder (that you can just spoon the marrow with). There's not a ton of marrow, but then again it's 1/3rd the cost of NY equivalent. Though not a ton of marrow, I liked how they gave you a mini-bucket of sea salt you can sprinkle on the marrow as you spread it on their toasted bread to really bring it alive. Due to it being only 12 euros, 5/5.
+* Andouillette again. Again, 5/5.
+* Steak frites. I asked for rare but the cut didn't really support it. It was a bit chewy as a result. Should have asked for medium rare. But the steaks were spectacular. 4/5.
+* Creme Brulee. Nice and delicate top that isn't too thick or chewy. The waiter torched it right in front of us. Good. 5/5.
+
+Overall, this is probably my favorite place in Lyon. Easy 5/5. Service is good even though the place is very cramped and the bathroom is also cramped. **Everything about was 102 euros.**
+
+**On this day, we walked 15K steps.**
+
+### May 8. Turin, The Final City. Turin 1.
+
+Woke up and caught the 8:05AM bus from Lyon to Turin. This is our "final city" as we'll be going back to the US in 3 days. "Final" in quotes as we'll depart from MXP so technically Milan is the last city but we'll only go directly to MXP from Turin.
+
+At around 12:30PM, we arrived and dropped our bags off at Hotel Roma, which is a hotel next to the train station (makes it easy to travel to Turin).
+
+We went for lunch at a place called [Scannabue](https://www.scannabue.it/) which translates to cutting the throat of an ox due to their meat-heavy menu. We had their sharing menu which had:
+
+* Cow heart and liver -- very moist and juicy like Spanish fois, had small dallops of punchy, spicy vinegar you can dip, 5/5.
+* 'Grilled "Cardoncelli" mushroom, smoked milk and sage olive oil. This was very mushroomy and the broth underneath is also intensely mushroomy. The smoked milk is just small dallops of cream and gave it a slight, smokey aroma. 5/5.
+* Brown Trout Ceviche, Quinoa, Chillies, Onion and Coriander Oil. This is interesting, as it's like any other ceviche, except not sour, and with quinoa. I'd say, 4/5.
+* Boiled Meat Croquettes and Green Bath. I don't really remember this that much so maybe 2.5/5.
+* Risotto with Parmesan cheese, Bone Marrow and Gravy. This is pretty good. Al dente enough, though I prefer it more al dente. The bone marrow gave it a fatty layer on the top but didn't taste like much. Most of the flavor came from the cheese and gravy. I'd say 4.5/5.
+* Grilled Duck breast with Foie Gras, Cardoncelli Mushrooms and Carrots. This duck is cooked very nicely and the mushrooms were very intensely fragrant. The carrots had a little sweetness to balance out the heavy dish. The foie is cold (French style) and was nice to mix/spread on the slices of perfectly cooked duck breast. 5/5.
+* Tiramisu. This was well-executed and 5/5.
+
+All of this, including half liter of red wine was 97.5 euros. Overall an easy 5/5. Very tasty food and fast service. Very full.
+
+After lunch, we walked around everywhere, including:
+
+* Around both sides of the Po river.
+* A nearby park.
+* The outside of the museum of cinema, which is apparently a big icon here.
+* Wandered our way through various shops until we stumbled back to our hotel at around 6PM.
+
+We ate dinner at a place called [Osteria Nuova](http://www.osterianuovatorino.it/). We again did the tasting menu which had:
+
+* An assortment of appetizers, including veal with tuna, tartare, and other things I don't remember. There were a total of 5 things. I think the most outstanding was the tartare and the other things were OK. 3.5/5.
+* "Herbal pudding" which is just like Chinese steamed egg, except more overcooked. And the bottom is anchovy sauce which gave it more of a savory flavor. 3/5.
+* Ragu pasta made with 30+ egg yolks. This is a 4.5/5 as it was nice and savory, the pasta's hot, though IMHO not al dente enough.
+* Beef cheek in wine sauce. This is good but maybe over-seasoned on the salt. I can see this being a bit better with a red wine though to balance out the saltiness. Very tender and perfectly executed meat. 4/5.
+* Onion with sausage. This was OK and nothing outstanding. 3/5.
+* Dessert 1: Chocolate mille fleur, which is basically tiramisu where instead of the cake/breading, they have slices of dark chocolate. It's a bit heavy but pretty decent. 4.5/5.
+* Dessert 2: Some dark chocolate fudge which I liked because it was not too sweet. Had some crumbs of nuts on the top. 4.5/5.
+
+Overall, the food was good but not great. The service is also average. I'd give this place a 3.5/5.
+
+Was too full to eat dinner afterwards, so went back to the hotel. We counted our steps and even though this was a shorter day as we had to transit for 4 hours, **we managed to fit in 18K steps.**
+
+### May 9: 30,000 Steps. Turin 2.
+
+Woke up and did the free hotel breakfast. It was OK. I drank a bunch of cappuccino.
+
+We spent most of the day walking. We walked a ton from one plaza to another, and then from shop to shop until it was tie for lunch. We went back to Scannabue since it was so good. We had:
+
+* The same cow liver + heart as yesterday, still 5/5.
+* Beef tartare with a light mayo sauce. Nice. 5/5.
+* Thin-sliced beef tongue with tomato sauce. It was OK because the tongue didn't have much flavor, was too thin, and the tomato was too salty. 3/5.
+* Pasta ragu, similar to the one we had yesterday and in Foresteria delle Vigne. They gave us some cheese on top though which was quite good. Nice and al dente with good ragu. 5/5.
+* Squid ink pasta with seafood. 5/5.
+* Faro salad, served with asparagus, tiny onion bulbs, and pickled onion slices. Surprisingly tasty and veggie. 4.5/5.
+* Chicken and cow intestine stew. Came with various things like cow liver/kidneys, chicken liver/kidneys, the *comb of chickens* (**the fleshy, red outgrowth on top of a chicken's head** -- quite spongy and soft). Very unique. 4.5/5.
+* Apple tart with ice cream. The apple is amazing and retained most of its natural flavors without too much sugar. 5/5.
+
+Overall 5/5 as per usual.
+
+Then, we walked a bunch more and I realized we were at 22K steps about an hour before dinner. I proposed we walk at least 30K steps as it is very rare we are able to do that.
+
+Anyway, right before dinner I had about 29K steps. For dinner we ate at a place called [Pastificio Defilippis](https://www.pastificiodefilippis.it/). In the middle of the day, we had walked over there to book a 7:30PM dinner, to which they said "see you tonight." But our name was not on the books. I realized they probably put our name on the wrong date/page. So I told them that and asked them to look at different page. And they thought it was our mistake for booking the wrong date when it was them that put it in the wrong page. Anyway, off to a bad start. We had:
+
+* Tuna tartare + avocado for appetizer. It is what you'd expect it to taste like. But a bit too much avocado for the amount of fish. Preferred more fish. 4/5.
+* Ravioli with various stuffed meats and a cream sauce. Was a bit too salty. 3.5/5.
+* Carbonara with guanciale. Very salty, guanciale too lean. 2.5/5.
+* Calamarata (like a rigatoni) with clams and mussels. This was good. The sauce was nice and light. 5/5.
+* *Rotelle* pasta (looks like a bike wheel) with tomato sauce and cubed fish. Fish was a bit hard I thought and a bit too salty. 3/5.
+
+The service was mid with a bad start. The food was not that good except for 1 dish. 2/5 overall.
+
+To finish off the 30K step quest, we walked to a gelato place called [Gelateria La Romana](https://www.gelateriaromana.com/50-gelateria-torino.php). Long line, but we had:
+
+* Mango -- tasted like the dried mango snack. Except creamy. Very good. 5/5.
+* Bluberry + elderberry -- was good, like a regular blueberry ice cream. 4/5.
+* Hazelnut with spongecake and various other ingredients. I liked this one because it was like a less-sweet tiramisu with the spongecake. 5/5.
+* Honey yogurt with nuts. Not a lot of nuts, not a lot of honey. 2/5.
+
+Overall it was a 4/5 gelato place. Many good and creamy flavors.
+
+By the time I walked back, as I am typing this up, I did ***31,519 steps.*** A new record with Serena! My PR is 42K steps in NY back in 2015 when I kept getting lost and I would literally just walk from morning to midnight.
+
+### May 10: How Many Calories? Yes. THE LAST DAY. Turin 3.
+
+Today's our last day as tomorrow we'll head straight to MXP from Turin in the morning, so there's not any 'vacationing' to be had there and just a travel day.
+
+As we walked 31K steps yesterday, we told ourselves to take it chill today.
+
+We had minimal breakfast at the hotel and then went out to have a cappuccino and a ginseng espresso. The latter was a bit too sweet. Then, we walked around a bit:
+
+* Zara Men
+* Rinascente to pee
+* Open air vintage market
+
+Then we had lunch at [Baleno Idea di Mare](https://www.ristorantebaleno.com/). We had:
+
+* Their white wine, which is pretty good as they served it on ice. And the whole bottle was 18 euros only. I couldn't finish though. 5/5
+* Some amuse bouche, it was a small octopus with some sesame seeds and green sauce. Very refreshing. 5/5.
+* A raw seafood taster which had 2 big, juicy prawns. A fresh oyster. Tuna tartare. Very fresh and good. 5/5.
+* Appetizer: Hard shell taco which is filled with tuna tartare, and had a bunch of acidic, pickled onion slices. Really nice. 5/5.
+* Primi Patti: Smoked pasta. With smoked cream and raw, smoked prawns. So good. The prawns were like little sweet nuggets in the pasta. Pasta's super hot and al dente. And they presented it with this glass dome thing where it was all smoked up. Like you sometimes see in smoked whiskey drinks. Except it was for pasta. SMOKED. PASTA. 5/5.
+* Secondi: Super soft fish with a crispy skin (so crispy it was like a potato chip). With some green sauce in the middle and zucchini with sun dried tomatoes and yummy dallops of cheese. 5/5.
+* Dessert: Milky yogurt with crumbs of rice/grains. Topped with acidic raspberries, blueberries, and blackberries. 5/5.
+
+Yeah this is an easy 5/5. 137 euros for 2 tasting menus, a bottle of wine, and a raw seafood taster. Not bad at all.
+
+Walked around a bit and then went to McDonald's to piss. Unfortunately, even at McDonald's you gotta buy something to take a piss. So we got the cheapest item: a macaron that costs 0.90 euros. It was ass. 1/5.
+
+We then walked around the river for a bit. Then walked back to town and then got a JellyCat love lock. Was about 35 euros.
+
+**Then, we went to get some milky ice cream at Biraghi. We got an XL where the cup is almost as big as my head (much larger than a pint), and a thing of just whipped cream. 5/5.**
+
+Walked a bunch and then went to Eataly to take a piss. Then, went back to the hotel at around 6PM to chill.
+
+We then went to a steakhouse called [Bifro](https://www.bifro.it/en/) ot eat steak. When you book on their website, an Italian number pops up but my esim doesn't support it. So I just DM'd them on Instagram. They responded within 2 minutes and made the reservation there. I used ChatGPT to write in Italian and to translate their Italian. Anyway, we had:
+
+* Amuse bouche which is just bread and a dallop of herbal butter. Pretty decent. 4/5.
+* Appetizer: Beef tongue, with some sliced cherry tomatoes in a pool of seasoned vinegar/olive oil on the side. It was very good and for only 15 euros, very generous portions (especially for an appetizer). We normally get 2 appetizers but the waiter said 1 is enough. He recommended us get some form of appetizer as the steak takes half an hour to cook, but it actually only took 15 minutes. Good underpromise, over-deliver. 5/5.
+* Side 1: Shishito peppers that are as long as my hands. These are normally small which is still good, but these paired really well to offset the fattiness of the beef that's about to come. 5/5.
+* Side 2: Fennel salad which olive oil and vinegar. It is just shaved fennels for the salad, but it was nice and light which helped with the heavy ass beef I'm about to describe as well. 4/5.
+* **Swedish Wagyu, 1.3kg of tbone. Unlike American Wagyu, this wagyu actually had tons of marbling and for the 1st time, I just asked them to cook it however the chef wants it, which is rare in this case. Extremely heavy, each bite is like eating a delicious steak that is doused in butter/bone marrow. The fat ends of the steak is caramelized, so there's a sweet/slightly bitter aftertaste that makes it taste like a candied meat. Normally, when I eat wagyu it is in the context of hotpot where you'd eat a slice or 2. But this is the first time ever I've eaten this much at once. This is by far the heaviest/fattiest meat in this quantity I have ever eaten. And the most yummy steak as well (at least a tie with 4 Charles).** But it comes at a price. And that price is 260 euros (20 euros per 100g).
+
+Overall it is expensive but when you think about it, not so much vs the US. Only thing is we were hoping to eat Fassona as that breed of cow is sort of Turin's local treasure. And the symbol of the city. The service was really good and in particular I liked:
+
+- Their setting the expectation that the steak would cook in 30 minutes, but delivered it in 15.
+- Waiter explained the menu in detail, gave recommendations, and onboarded us well in general.
+- Once I ordered the meat, another waiter came over to re-confirm this is what I wanted. He showed me the raw meat, told me its weight, and then told me how much it would cost, and if that was OK. This is really good because an additional touch point like this reduces buyer regret.
+
+This is by far the most expensive meal we had in this trip at 300 euros, but to be fair most of it is from the wagyu. The sides and everything else was extremely reasonable (if not cheap) in cost. Water was 3 euros which is more expensive than the cheaper restaurants out there, but not nearly as expensive as the 7-8 euros in San Remo/Portofino. This place is a comfortable 5/5. A fitting final meal.
+
+Interesting note: like Audemars Piguet, they lock the doors to the steakhouse. And unlock it when you go in and out. As if people will rob the place of steak.
+
+But after that, we walked to this gelato place next to our hotel which is a chain called GROM. We got:
+
+* Mango - Nice smooth mango, reminescent of yesterday's mango. But this one is not as smooth in texture. 4.5/5.
+* Lemon - Very nice to have this acid after a heavy meal. 5/5.
+* Coconut - nice and creamy. Coconuty. 5/5.
+
+### May 11. Arrivederci! + Conclusion
+
+Woke up and went to the cafe downstairs and did 2 cappuccino. Afterwards, we to get free breakfast. I just got the usual scrambled eggs.
+
+Went back to our room and packed the rest of the stuff and took the train from Turin->Milan, and then transferred to an express train to MXP. The whole journey took about 2 hours.
+
+Then, at around 12PM, we went through MXP security, walked around the shops a bit, and then settled in at the Emirates lounge. Just ate and drank Coke Zero for a little bit until 4PM boarding.
+
+This Emirates business experience was OK. Half the stewardesses seem less engaged. Though still in general 10X better than United. But was made "meh" by the fact that there were a bunch of kids there that wouldn't STFU.
+
+IMO, kids shouldn't be allowed in business class as it'll just spoil them.
+
+Anyways, we landed at T4 and the process was smoother than ever. Normally, when I land nowadays, it's always chaotic and you need to line up and talk to the Border Patrol guard and it'll take 30 minutes even if you're Global Entry. But this time around, it was like back in the old days where you do your face scan, they call your name as you pass, and that's it.
+
+We also tried to take the cab instead of Uber this time, as Uber was $150 while taxi was only $90 when I already include tip. It actually could have been about $80 as I get a 10% permanent discount signing up for Curb--but the code disappeared right when I wanted to pay. Next time, I should just try to prepay with the code.
+
+Guy drove like maniac. Went to the shoulder to cut through all the cars.
+
+Anyways, we got home safe.
+
+As I type this, it is 9PM EST, and we started at 9:40AM CEST (or 3:40AM EST), so the whole journey took about 17 hours.
+
+#### Conclusion
+
+4 weeks is a good-length trip. I have a habit spreadsheet and its scores were:
+
+98.04%, 98.04%, 96.71%, and 98.04% for 4 habits YTD. 100% would mean I achieved it every day. However, as I been gone for 4 weeks and didn't want to grind during vacation (though argubaly one of the habits I could have kept up is simply stretching which does not take long and that was just laziness). Now, the scores are:
+
+76.34%, 76.34%, 75.30%, 76.34%.
+
+And it is well worth it. Much better than the alternative which is to grind and miss the joy of my own wedding.
+
+I always thought I might want to live in EU long term but I think not anymore. While cheaper and 'less stress' (though that is subjective), EU really sucks because:
+
+* People are really loud and too social for me.
+* Everyone smokes. Moreso in France than Italy. But still, almost anywhere you go is just 24/7 2nd hand smoke.
+* In France, people bump into you alot. Not trying to pick-pocket you (though they can be), they are just too lazy to move out of the way.
+* Their water bottles fucking suck and it's insane. The cap can't be unscrewed completely and if you force it you will cut yourself. As the cap can't be unscrewed, it'll always awkwardly push against you when you drink it. The cap is also extremely thin, so you can't reliably screw the cap back on and can spill water everywhere.
+* There are too many kids walking around, especially in France, which I dislike. Kids get away with too damn much and so even as a stranger to someone else's kid, it's an asymmetric relationship. **Imagine a 2-year old walks up to you and kicks you right in your shin. What are you going to do? Punch the little shit in the mouth? Exactly, you can't do shit and that's bullshit. I don't owe someone else's kid *anything*. But social norms say that if someone else's kid is being a piece of shit (which they normally are), you can't do anything. I can tolerate some of this bullshit but in the EU there's kids everywhere so it's more of this bullshit you need to tolerate.**
+
+Still, for a short-term vacation these negatives are outweighed by the positives which is mainly good food and a more chill lifestyle. Long-term though, those are all dealbreakers.
+
 ## Lessons Learned
 
 * When we got on the boat on April 23rd, that was completely spontaneous. And on April 24th, it was a bit cloudier and windier. It would have not been great to get on the boat the next day. It goes to show that **if an opportunity arises, you must always be ready and capitalize on it immediately.**
 * **You can / should just ask people to do things.** It might seem odd or unreasonable to ask staff to deliver an unfinished, cheap bottle of wine to the main lobby in front of the bar so we can finish drinking it. But you never know if you don't ask. And in so asking, we saved ourselves a lot of alcohol money and still was able to enjoy the vibe of the Casa Di Langa lounge without paying an extra dime.
+* To have high quality, keep logistics simple and your 'menu' small. In other words, **focus**.
+* **Responding fast = much higher close rates**. I reached out to the Bifro steakhouse on instagram, and if they didn't respond so quickly, we would have booked other dinner options probably within the next 20 minutes.
+* **Onboarding well differentiates the product.** The steakhouse's thorough onboarding made me feel as a customer, that this place is very fancy. They also offered to take our coats. But if you look at the architecture of the place, it isn't anything that fancy. But the services provided make it more so. Also locking the doors to the steakhouse was interesting.
+* **Many touchpoints to remind the customer what they're getting = less churn.** The steakhouse re-confirmed with me what steak I was getting, and told me how much weight it is (which is enough for me to calculate the price), and showed me the price explicitly to make sure that is what I wanted. I don't see many people backing out at this stage and wanting a cheaper piece of meat, but the voluntary self re-affirmation makes it less likely for buyer regret due to commitment/consistency bias.
