@@ -3,7 +3,7 @@
   publish   = "site"  # or whatever your MkDocs output dir is
 
 [context.production.environment]
-  PYTHON_VERSION = "3.9.5"
+  PYTHON_VERSION = "3.8.20"
   # optional: disable idiomatic .python-version auto-detection
   MISE_SETTINGS = 'idiomatic_version_file_enable_tools:[]'
 
